@@ -25,9 +25,7 @@ Dad's knuckles were white on the steering wheel—had been since we left West. T
 
 Funny thing about growing up nocturnal—you see things other people don't. The woods behind our house taught me that. I'd spent hours out there, not because I gave a damn about nature, but because 3 AM has a texture that daylight can't touch. The silence isn't really silent. It breathes. And sometimes, when the wind died completely, I swear I could hear my own heartbeat echoing back from the trees.
 
-Mom never liked it. "Night owl," she'd call me, same as Dad, but her voice always had an edge he didn't hear. Or pretended not to. They'd joke about being vampires, about buying coffins—inside jokes that felt less funny the older I got. Dad would get this look when she said it, something flickering behind his eyes that was gone before you could name it.
-
-The prophetic part? That came later. Much later. After the screaming stopped.
+Mom never liked it. "Night owl," she'd call me, same as Dad, but her voice always had an edge he didn't hear. Or pretended not to. They'd joke about being vampires, about buying coffins—inside jokes that felt less funny the older I got. Dad would get this look when she said it, something flickering behind his eyes that was gone before I could name it.
 
 We were movie people—the kind who measured weeks in films rather than days. Three, sometimes six a week, the three of us crammed on the couch with popcorn going cold while we argued about whether the gore in *Hellraiser* was gratuitous or art. Mom and I had a thing for horror. The nastier the better. Blood, viscera, things that made normal people look away—that's where we leaned in.
 
@@ -118,8 +116,6 @@ Fifteen minutes of silence.
 
 That's how long it had been since the music died. Not faded out—died. One second Sinatra was crooning, the next there was nothing but the sound of tires on asphalt and my own breathing, too loud in my ears.
 
-Something was wrong.
-
 Dad and Mom were whispering. Urgent, clipped words I couldn't quite catch. I saw "they found us" shape itself on Dad's lips, though that made no fucking sense. Who? Found us where?
 
 "How could they even know where we are?" Mom's voice cracked on the last word.
@@ -178,7 +174,7 @@ into an abyss of darkness.
 
 When I woke up, I was drowning in red.
 
-Not metaphor. Actual red. Blood covered sixty percent of the car's interior—the seats, the ceiling, the windows. It was in my mouth. Copper and salt. I gagged, spat, tried to breathe through the metallic stench and failed.
+Not metaphor. Actual red. Blood everywhere—the seats, the ceiling, the windows. It was in my mouth. Copper and salt. I gagged, spat, tried to breathe through the metallic stench and failed.
 
 The car was on its side. I was still in the back seat, somehow. Everything was wrong-way-up. The ringing in my ears was so loud I wanted to claw it out of my skull. Gasoline. I smelled gasoline. And under that, burned meat.
 
@@ -210,7 +206,7 @@ She wasn't pinned.
 
 She was impaled.
 
-Stone spikes. Three of them. Each one thick as my forearm, erupting from nowhere—through the dashboard, through the seat, through her. One through her chest. One through her abdomen. One through her right thigh.
+Stone spikes. Three of them. Each one thick as my forearm, driven through the dashboard, through the seat, through her. One through her chest. One through her abdomen. One through her right thigh.
 
 They weren't random. They were placed. Surgical. Deliberate.
 
@@ -280,7 +276,7 @@ Hoodie. Dark jeans. Face in shadow. But her eyes—Jesus Christ, her eyes—glow
 
 "You fucking asshole!" The scream tore out of me. "My mom was still in there!"
 
-"She was already dead." The woman's voice was flat. Matter-of-fact. Like she was commenting on the weather. "I could hear her heartbeat no more."
+"She was already dead." The woman's voice was flat. Matter-of-fact. Like she was commenting on the weather. "I couldn't hear her heartbeat anymore."
 
 A wave of dread surged through my chest, and I was engulfed by the increasingly acrid scent of cheap unleaded fuel that
 permeated the air. Panic coursed through me, urging me to act and scramble out of the soon-to-be death trap. I had to
@@ -1522,7 +1518,7 @@ Cat ears. Real ones. Black with pink insides, twitching at the sound of my sharp
 
 My brain short-circuited.
 
-This wasn't cosplay. Wasn't some kinky roleplay gear. These were real. Part of her. And every fantasy I'd ever had, every late-night browser history I'd cleared, every private thought I'd buried deep—all of it was standing in front of me, breathing, watching me with those red eyes that saw too much.
+This wasn't cosplay. Wasn't some kinky roleplay gear. These were real. Part of her. And every fantasy I'd ever had, every late-night browser history I'd cleared, every private thought I'd kept hidden—all of it was standing in front of me, breathing, watching me with those red eyes that saw everything.
 
 "Holy shit," I said. Eloquent. Really selling the whole 'dominant' thing.
 
