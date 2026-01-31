@@ -278,247 +278,138 @@ Hoodie. Dark jeans. Face in shadow. But her eyes—Jesus Christ, her eyes—glow
 
 "She was already dead." The woman's voice was flat. Matter-of-fact. Like she was commenting on the weather. "I couldn't hear her heartbeat anymore."
 
-A wave of dread surged through my chest, and I was engulfed by the increasingly acrid scent of cheap unleaded fuel that
-permeated the air. Panic coursed through me, urging me to act and scramble out of the soon-to-be death trap. I had to
-get Mom out. I made a frantic move to retrace my steps back into the car, but before I could reach her, a powerful grip
-seized me from behind, wrenching me away and hurling me backward.  The ground rushed up to meet me with a brutal thud,
-the impact knocking the breath from my lungs and sending a jolt of pain through my body. Everything around me seemed to
-explode as the vehicle erupted in a fiery conflagration, the flames licking upward and consuming the wreckage. The blast
-was thunderous, shaking the earth beneath me and sending vibrant orange light cascading through the trees, disorienting
-me further.
 
-As I struggled to regain my footing, disoriented and gasping for air, I caught sight of a dark figure looming nearby.
-Dressed in a shadowy hoodie that concealed their face, the figure was the one who had knocked me down, and an
-instinctual fear coursed through me. My heart raced as I gathered my thoughts, ready to confront whoever it was that had
-suddenly inserted themselves into my already tumultuous reality.
+"Your father fought," she said. Flat. Clinical. "He lost. And if I hadn't pulled you from that car, you'd be ash."
 
-Tears streamed down my face as I screamed at the figure emerging from the shadows. "You fucking asshole! My mom was
-still in the car," I shouted, my voice cracking with a mixture of rage and despair. The words hung in the air, heavy and
-suffocating, like a weight pressing down on my chest.
+The words should have hurt. They did hurt. But beneath the pain, something else—truth I couldn't argue with.
 
-The figure's response was unsettlingly calm, almost devoid of emotion, yet beneath that composure I sensed something
-ancient, something that had seen centuries of death and learned to compartmentalize it. She stepped closer to me, her
-features hidden even by the moonlight, moving with a fluid grace that was somehow both predatory and protective. Her
-eyes were the only visible element, slightly glowing with an unnatural red hue that should have terrified me—yet
-instead, they stirred something deep in my memory, a recognition I couldn't place. Her expression blank but for a hint
-of sorrow flickering in them. "She was already dead," she stated flatly, her voice echoing in the silence that enveloped
-us, carrying the weight of someone who had delivered such news too many times before. "I could hear her heartbeat no
-more." A sense of hopelessness washed over me at her words, but also something else—a strange, inexplicable comfort in
-her presence.
+"Who the fuck are you?" The vial was still in my hand. Metal case digging into my palm. "You know my name. You know about this—" I held up the vial. "You knew my mom."
 
-She continued, her voice low and grave, "As for your father, he fought valiantly, but in the end, he succumbed to their
-relentless attack." The image of my father's fierce determination flashed through my mind, now forever silenced. "We are
-alone," she said, her tone heavy with grief. "And if I hadn't pulled you away from the car, you would have died for
-nothing."
+"What did she tell you?" The woman's voice changed. Sharper. Interested.
 
-Her words hit me like a punch to the gut. Despite my anger towards her, I couldn't deny the truth in what she was
-saying. We were all that was left now. The weight of our survival rested on our shoulders alone.
+My throat was raw from screaming. "Said to drink it. Find someone named Raechelle. Go home, read her journal." I was babbling, shock making me stupid. "What is it?"
 
-"Believe this or not," she continued, her gaze meeting mine with intensity. "But I am not your enemy here." And in that
-moment, as I looked into her eyes and saw the pain and loss mirrored there, I knew she was telling the truth. We were on
-the same side, fighting against a common enemy that had taken everything from us.
+She tilted her head. Red eyes caught the moonlight. "It'll change everything. Your mother's dying wish—drink it, embrace what you are, or throw it away and pretend tonight never happened."
 
-Panic surged through me as I felt the small case I was still clutching tightly in my hand. "Who are you?" I demanded, a
-cautious edge creeping into my voice as the reality of the situation began to sink in. “Do you know what this vial is
-that she made me get out of the glovebox?” The realization that the voice addressing me was undeniably feminine did
-little to ease the weight of dread settling in my chest.
+"That's not an answer."
 
-Her gaze bore into me, and she leaned closer, her interest piqued. "What did she tell you?" The question purred from her
-lips, laden with a curiosity that sent chills down my spine.
+"It's the only one you're getting." She stepped closer. "Choose, Riven. Revenge, or oblivion?"
 
-I swallowed hard, struggling to gather the fragments of my thoughts. "Nothing," I managed to reply, my breath coming in
-ragged bursts. "She told me to take it and get out of the car. She named someone—Raechelle, I think—and told me to go
-home and find her journal. I was supposed to figure it out, but then I smelled the gas. I panicked and got out of the
-car as fast as I could." My voice trembled, desperation lacing each word. “What is it?” I implored, my heart racing as I
-searched her face for answers.
+I looked at the vial. Dark liquid, almost black. Silver filigree on the case, pentagram seal on the cap. Mom's symbol. She'd prepared this. Waited for this. Died for this.
 
-As I reflected on our conversation, I felt a wave of surprise wash over me, mixed with a touch of irritation at myself
-for sharing so much personal information with a woman I barely knew. I had no real understanding of who she was, nor any
-insight into her true intentions. Yet, despite this uncertainty, something deep within me told me that she meant no
-harm. There was an odd familiarity in her demeanor as if I recognized her from some distant memory or fleeting
-encounter. This inexplicable connection sparked both curiosity and conflict within me, making me wrestle with the
-mysteries of our brief interaction.
+I opened the case.
 
-“It will change your life forever,” she said with a calm certainty that sent shivers down my spine. “And I suppose it
-was your mother’s dying wish, so drink it…” Her casual tone belied the gravity of the moment.
+The vial was simple. Glass, dark liquid, pentagram seal. Mom's work. I unscrewed the cap and the edge bit into my thumb. Blood welled up, dripped into the vial.
 
-“But understand this,” she continued, her gaze steady on me. “Once you choose to drink it, there is no turning back.
-Your life will transform in ways you can’t yet imagine. The moment this liquid touches your lips, everything you have
-ever known will be altered irrevocably, and your journey into the unknown will begin.”
+For a second—just a second—the liquid glowed.
 
-I felt the weight of her words hang in the air, thick with implication. “So make your choice now, Riven,” she purred,
-her voice dropping to a sultry whisper. “Do you want to embrace something greater within yourself? To seek out revenge
-on those who have wronged you? Or do you wish to cast this aside and continue living as if nothing ever happened?”
+The woman watched. Said nothing.
 
-She paused, letting the enormity of the decision sink in. “Before you ask, I cannot delve into the specifics of what
-will happen next. Even if I wanted to, this is a path you must choose for yourself, with all its inherent risks and
-uncertainties. You will have to take the leap of faith and roll the dice. This is entirely your decision, and it carries
-weight. Just know that this is what your parents hoped for you since the day you were born—a chance to reclaim your
-destiny, no matter the cost.”
+Fuck it.
 
-I couldn't help but notice that she had completely brushed aside my inquiry about her identity. It was curious, almost
-unsettling, that despite my questions, she seemed unfazed and well aware of who I was. There was an undeniable tension
-in the air, a strange connection that hung between us like a delicate thread. It stirred something within me, compelling
-me to delve deeper into this mysterious bond we shared, yet at the same time, it kept me from pressing her further. The
-intrigue lingered, and I found myself both captivated and perplexed by the enigma that was her.
+I drank.
 
-With a slight hesitation coursing through my veins, I opened the case revealing my destiny.  I focused on the dark,
-almost crimson liquid swirling within the delicate confines of the vial. The moonlight bathed the surroundings in an
-eerie glow, illuminating the vivid red hues of the liquid and casting distorted shadows around me. I leaned in closer,
-taking in the vial's design; its corners were adorned with intricate silver metal edges that caught the light, framing a
-silver-laden cap that gleamed ominously at the top. A red pentagram seal sat prominently on the cap, its shape sharp and
-authoritative. Knowing my mother as I did, the presence of the pentagram neither surprised nor concerned me; it
-perfectly mirrored her eccentric personality and her penchant for the unusual in all aspects of life.
+It tasted like copper. Like licking a battery. Like blood and metal and something older than both. I swallowed, gagged, forced it down.
 
-As I unscrewed the cap, an unexpected sharpness grazed my hand, drawing a small trickle of blood that mingled with the
-viscous substance inside. For a fleeting moment, I could have sworn the liquid pulsed with a life of its own, glowing a
-vivid scarlet as the two mixed. My gaze shifted to the dark figure waiting silently beside me. Their face remained an
-inscrutable mask of indifference, devoid of any emotion that might have hinted at the impending consequences of my
-actions.
+Nothing happened.
 
-I hesitated only for an instant before tilting the vial, allowing the thick liquid to cascade over my lips and slip into
-my mouth. It coated my tongue like polished metal, its flavor a bizarre amalgamation of iron and something I could not
-quite place. I swallowed, the sensation both foreign and unsettling, yet a wave of anticipation struck me as I waited
-for something—anything—to happen.
+I looked at her. "What was supposed to—"
 
-Nothing. An oppressive stillness enveloped the air, thick and heavy like a blanket, as I turned to face the enigmatic
-figure before me. My heart raced with anticipation, ready to voice the myriad thoughts swirling in my mind. Yet, before
-I could form a single word, an unexpected force slammed into me—sudden and overwhelming—like a donkey kicking me
-squarely in the chest.
+Then it hit.
 
-The impact jolted my senses awake, a visceral shock that rippled through my entire being. Colors amplified, sounds
-sharpened, and the air crackled with a strange energy, transforming my surroundings into a dizzying tapestry of
-sensations. Each breath I took felt electric, as if the very atmosphere hummed with hidden possibilities, pulling me
-deeper into a world that was suddenly alive with intensity and wonder.
+Not gradual. Not gentle. Like a freight train to the chest. Every nerve in my body lit up at once—pain, pleasure, I couldn't tell the difference anymore. My vision went white, then red, then colors I didn't have names for.
 
-Without warning, a cascade of iridescent lights ignited around me, each beam pulsating with its own vibrant hue while
-simultaneously weaving together in a breathtaking tapestry of color.  The reds glowed like embers from a gentle flame
-flickering with a passionate intensity.  The blues shimmered like the depths of an ocean, while lush greens flowed
-through the spectrum, rich, vibrant, and sparkling with the freshness of morning dew.   It was as if a living galaxy had
-descended into the dimly lit space, illuminating the surroundings with an ethereal glow, transforming the ordinary into
-an extraordinary celestial spectacle. The lights danced and twirled with a fluid grace, creating a symphony of color
-that was both enchanting and otherworldly.
+I was on the ground. When did I fall?
 
- Just as I was trying to process this captivating spectacle, an overwhelming force lifted me gently off the ground.  The
-lights intensified, speeding up in their chaotic dance, and with it, a powerful wave of sensation surged through me.  I
-gasped, a sharp intake of air that burned my lungs as every muscle in my body tightened with increasing power.  My fists
-clenched so tightly that my nails dug into my palms, drawing blood. Even my cock pulsed and throbbed against the
-confines of my pants, desperate for release. It was an electric rush, all-consuming and addictive, like the euphoria I
-felt after dominating a particularly masochistic submissive to the brink of their limits.  Every fiber of my being was
-awakened, as though I were on the precipice of a profound revelation, standing at the threshold of a surreal,
-otherworldly experience.
+The world was too loud. I could hear the woman's heartbeat, steady and slow. Could hear insects in the trees, their legs scraping bark. Could hear my own blood rushing through veins that suddenly felt too small, too fragile.
 
-At last, a surge of raw, uncontainable energy erupted from deep within me, radiating outward like a shockwave. The
-ground beneath my feet trembled violently, causing the grass to bend and sway as if caught in a tempest. The remnants of
-the car, twisted and scattered, rattled under the force of the pulse, while nearby trees swayed ominously, their leaves
-rustling like whispers of wind.  This electrifying finality of magic surged through my veins, a powerful culmination of
-all that had transpired. Everything around me vibrated with the intensity of the wave, a cacophony of sound and movement
-echoing in the air—except for her. The woman, initially a study in neutrality, now bore an expression of bewildered
-surprise. Her eyes widened, and the lines of confusion etched across her face starkly contrasted with the chaos that
-enveloped us. She stood, seemingly untouched by the tumult, rooted in her own astonishment as the world around her
-quaked.
+Too human.
 
-“What are you?” she asked, her voice trembling with a mixture of bewilderment and concern. Her eyes were wide as she
-stared at me in disbelief.
+My hands. Something was wrong with my hands. The nails—longer, darker, sharper. I watched them change, watched my skin pale, watched veins darken beneath the surface like a road map drawn in ink.
 
-I was taken aback, and an electric shock of confusion coursing through me. “What do you mean? What am I?” I replied, my
-voice tinged with disbelief. “Aren't you the one who speaks in those cryptic riddles? You mentioned a vial and hinted at
-knowing my parents, even though I’ve never laid eyes on you or heard your name before today.”
+"What—" My voice sounded different. Deeper. Wrong. "What the fuck did you give me?"
 
-Her expression shifted, a flicker of understanding mingled with uncertainty crossing her face. “You possess a certain
-essence,” she said slowly, almost as if she were piecing together a puzzle. “You are not simply human, that much is
-evident, but the depths of your being elude even me. You know nothing of the unnatural world that surrounds us, yet
-there is something inherently different about you. What you truly are remains a mystery, even to those who walk in the
-shadows.”
+The power surge came from nowhere. One second I was on my hands and knees, trying not to vomit. The next, energy exploded out of me like a grenade. The ground shook. Trees bent. The car's wreckage rattled.
 
-I found myself in a perplexing state, struggling to articulate what had just happened. The pain from the accident had
-mysteriously vanished, leaving no physical trace on my body—no bruises, no cuts, not even a hint of discomfort. It was
-as if my body had reset itself, erasing the brutal reminders of the trauma I had just experienced.  As I turned my head
-from side to side, I was struck by the surreal quality of my surroundings. I kept glancing skyward, trying to confirm
-that it was still night. Yet, the vibrant light that bathed the landscape felt like the harsh brightness of midday.
-Shadows that should have been cloaked in darkness danced around me, and the air was eerily still, charged with an energy
-that was both unfamiliar and unsettling.
+The woman stumbled back. First time she'd moved like that—surprised, off-balance.
 
-My stomach growled with an insatiable hunger that clawed at me, but this craving was unlike any I had felt before.
-Typically, I would associate hunger with my normal routines, but now it gnawed at me with an urgency that felt out of
-place—almost unnatural, considering everything I had just been through. It was as though my body, reborn from the
-wreckage of the past moments, was demanding sustenance to match the strange new reality I found myself in.
+"What are you?" Her voice had lost its flat certainty.
 
-“Who are you, and what do you know about any of this?” I rasped, my voice dropping to an unexpected deep rumble that
-surprised even me. The air around us seemed to thicken as I waited for her response.  The woman remained silent for a
-moment, clearly taken aback by the gravity of my tone and the weight of my question. Her eyes, briefly visible flashing
-a hint of color beneath the shadow of her hood, widened in surprise. Slowly, she lowered herself to one knee, the fabric
-of her cloak brushing softly against the ground as she bowed her head in a gesture of submission.
+"You tell me." My voice came out wrong. Deeper. Like someone else was using my throat. "You're the one with all the answers."
 
-After a pause that felt like an eternity, she finally spoke, her voice cautious and laced with suspense. “I…it’s
-complicated,” she murmured, her words barely breaking the stillness of the moment.
+She stared. "You're not human. Not anymore. But what you are..." She trailed off. "I don't know."
 
-“I am Raechelle, a familiar bound to the ancient bloodline of the Sixxx family for centuries, a lineage steeped
-in rich history and powerful magic. The vial you recently consumed contained a rare blood elixir—one that was rightfully
-yours, your birthright. This potent liquid was meant to trigger your awakening, unlocking the profound abilities tied to
-your family’s legacy and the intricate discipline of magic that has been passed down through generations.  In my long
-experience of witnessing awakenings, each has been a marvel to behold, often characterized by a singular, vibrant hue of
-magic that signifies the individual's particular affinity. However, what I witnessed in your transformation was
-extraordinary; it was not merely one color that blossomed forth, but a symphony of brilliant energies reflecting all the
-disciplines of magic. Each hue intertwined and danced around you, illuminating the air with a dazzling spectacle that
-hinted at a potential far greater than any I had seen before. Your awakening was not just a continuation of the past; it
-marked a new chapter brimming with immense possibilities and untapped power, setting you apart as a nexus of magical
-potential within your storied heritage.”
+That should have terrified me. It didn't. What terrified me was how good I felt.
 
-“Stand, why are you kneeling?” My voice was firm and commanding as I spoke, I motioned with a gesture for her to rise
-from her submissive position. Immediately, she obeyed without hesitation or control over her own body, emitting a small
-whimper and gasp that betrayed her true desires. The faint sound of pleasure mingled with submission echoed in my mind
-as I watched her move. My previous encounters with obedient women flooded back, stirring something deep within me. I
-paused in my movements, the sadistic side of me reveling in the involuntary response I provoked from her, and asked with
-a hint of amusement in my tone.
+The pain from the crash—gone. The cuts, the bruises, the broken ribs I'd felt crack when I hit the car ceiling—gone. My vision was sharp enough to count leaves on trees fifty yards away. I could hear her breathing, smell her sweat, sense the pulse of her blood beneath her skin.
 
-"What was that? What the hell did I just do?" My voice resounded with genuine concern, tinged with a hint of awe. "Are
-you okay, Raechelle?" I stumbled over her name, my tongue tripping over the unfamiliar syllables. She stood before me,
-her eyes wide and shocked, her hands trembling at her sides. I could see the confusion etched on her face as she tried
-to make sense of what had just happened. My heart pounded in my chest as I waited for her response, my own mind
-struggling to comprehend the unexpected twist our night had taken. "Are you okay, Raechelle?" I repeated, hoping she
-would snap out of it and reassure me that everything was indeed okay.
+And I was starving.
 
-“I’m doing alright, just a bit taken aback by everything. That was quite an impressive display of your magic,” she said,
-her breath coming in quick bursts as she tried to regain her composure. “By the way, it’s RAEchelle—like a ray of
-sunshine, combined with the ending of Michelle—and that’s why most people just call me Rae.”
+Not hungry. Starving. A need so deep it made my jaw ache. My gums hurt. Something was wrong with my teeth.
 
-She paused, collecting her thoughts, and continued, “The magic of your Bloodline is particularly unique and powerful.
-It’s rooted in blood magic, a force that typically awakens only the red discipline magic within its chosen. But based on
-what I've just witnessed during your awakening, I can’t help but feel that your experience is more complex than that.
-There’s something unusual at play here, something that transcends the expected boundaries of your lineage.”
+"Who are you?" The question came out as a growl.
 
-"Blood Magic?!" I shouted, my voice cracking with disbelief and anger. "Are you seriously trying to tell me that magic
-exists? Or are you just high on some drugs? What kind of sick joke is this?" I demanded, glaring at her with fierce
-intensity. My mind races, wondering what drug could have been in the vial. LCD? Molly? MDMA? The possibilities only fuel
-my rage as I try to make sense of the situation. "What did you drug me with?" I growl, my hands clenched into fists as I
-wait for an answer that may never come.
+The woman dropped to one knee. Head bowed. "My name is Raechelle."
 
-Rae's voice trembled as she struggled to regain control of her breathing, her body visibly shuddering from my
-frustrated growl. "You were not drugged, Sir," she managed to choke out, her words laced with urgency.  "Your mother's
-journal will explain the majority of your questions. Seeing it in her delicate handwriting and hearing her voice in your
-head will bring clarity to what is happening."
+Raechelle. The name Mom had said. Find Raechelle.
 
-I could feel a surge of powerful energy radiating from within me, causing my body to tremble with its aftershocks. Rae's
-control of her breathing continued to falter under the waves of magic emanating from me.
+"Stand up." The words came out like a command. I didn't mean them that way—didn't mean to sound like I was ordering her—but she shot to her feet like I'd yanked a chain.
 
-"We need to leave this place before someone or something comes to investigate the car or the immense power you are
-emitting," she urged urgently. "My own body is still reeling from its effects, despite having built a heavy tolerance
-over my centuries of existence." Her previously calm and collected tone held an edge of panic that matched the intensity
-of the situation at hand.
+She gasped. A small sound, caught between surprise and something else. Something that made my newly-sharp senses prickle with awareness.
 
-"Why do you insist on calling me Sir? I asked, my brows furrowed in confusion. My name is Riven.  I quickly added, "And
-I apologize for mispronouncing your name earlier. It was not intentional, I assure you." But my gaze lingered on her
-face, eager for any sign of forgiveness.  "I will call you Raechelle," I continued, determined to stand out from the
-others who called her by her shortened nickname. "But first, tell me, what exactly is a Familiar? And why are you bound
-to my bloodline?" My mind raced with questions, trying to make sense of the centuries-old bond that she claimed to have
-with my lineage. "And if this has been going on for centuries," I concluded with a shaky breath, "it means...you're not
-human, are you?" As much as it scared me to think about, there was no denying the possibility that the woman standing
-before me was not like any other mortal being I had ever known.
+"What the hell was that?" I backed up a step. "What did I do?"
 
-"Riven, Sir, please take a moment to breathe." Her voice flowed like silk, soothing and melodic, as she gently touched
-my arm. The contact was light, almost hesitant, but the effect was immediate—a calming wave washed over me, anchoring me
-to the present moment when everything else felt like it was spiraling away.
+"You commanded me." Her voice was steadier now. Almost impressed. "The bond between a familiar and her master allows for certain... compulsions."
+
+"I'm not your fucking master."
+
+"You are, actually." She pulled back her hood.
+
+I'd seen her eyes already—red, glowing. But now I saw the rest. Black hair, pale skin, sharp features that should've been cold but weren't. She was younger than I'd thought. Or looked younger. With supernatural shit, who knew?
+
+"I'm bound to the Sixxx bloodline," she said. "Have been for centuries. The vial you drank—that was your inheritance. Blood elixir. It activates the magic in your DNA."
+
+"Magic." The word tasted like ash. "You're telling me magic is real."
+
+"You just grew claws and can hear my heartbeat from ten feet away. Yes, magic is real."
+
+Fair point.
+
+"Most awakenings show one color," she continued. "One discipline of magic based on affinity. Yours showed all of them. Every single discipline. I've never seen that before."
+
+The hunger gnawed at me. "What am I?"
+
+"Blood Archon. That's your title, your legacy. You control blood—your own, others', the life force itself. But what you displayed..." She trailed off. "I don't know. Something more."
+
+I was still reeling. "This is insane. You're telling me magic exists, I'm some kind of blood wizard—"
+
+"Blood Archon."
+
+"—whatever, and you've been tied to my family for centuries?" My voice was rising again. The air around me felt charged. "This can't be real. What was in that vial? LSD? Some kind of designer drug?"
+
+"You weren't drugged." She was trying to stay calm, but I could hear her pulse quicken. "Your mother's journal will explain everything. You need to read it in her words."
+
+The mention of Mom hit like a gut punch. The journal. She'd told me to find it. Before the spikes, before the fire, before everything turned to ash.
+
+"We need to leave," Raechelle said. "Someone will have seen the explosion. Felt your awakening. We can't be here when they arrive."
+
+"Who's 'they'?"
+
+"Later. We need to move. Now."
+
+"Why do you keep calling me 'Sir'?" The formality grated on me. Wrong, in all this wrongness.
+
+"Because that's what you are. My master, by blood and bond."
+
+"Don't." The word came out sharper than I meant. "My name is Riven. Use it."
+
+She hesitated. "As you wish... Riven."
+
+Better. Barely.
+
+"What are you?" I asked. "You said centuries. You're not human."
+
+She met my eyes. "No. I'm not."
 
 She closed her eyes briefly, and I saw something flicker across her features—not the predatory hunger I might have feared,
 but something more complex. Vulnerability, maybe. Longing. As if my very presence affected her as much as hers affected
@@ -529,22 +420,14 @@ scent.
 nothing makes sense. But you're not alone in this, Riven. You were never meant to be alone." There was something in the
 way she said it—a weight of years, perhaps centuries, of her own solitude—that made me believe her.
 
-I blinked hard, striving to regain my composure, and when I finally looked up, the hood that had obscured her face had
-fallen back. For a moment, I forgot to breathe.
+She pulled her hood back.
 
-Before me stood Raechelle, and she was... striking. Not in the way that demanded attention, but in the way that held it
-captive once given. Her eyes were the first thing I noticed—glowing like twin rubies, a vivid crimson that should have
-been frightening but instead felt strangely familiar, as if I'd been seeing that exact shade in my dreams without
-realizing it. There was a depth to her gaze, layers upon layers of lived experience, joy and sorrow intertwined, that
-made my own twenty-three years feel like barely a heartbeat.
+Red eyes—I'd seen those already. But now I saw the rest. Black hair, pale skin, freckles across her cheeks and nose like scattered paint. She was beautiful in a way that didn't need cataloging. The kind of face that would've stopped me cold on a normal night, in a normal world.
 
-Her hair cascaded down her back in luxurious waves, almost reaching her waist, a shade of midnight that caught the faint
-moonlight in subtle blue highlights. Her skin was pale as alabaster, dotted with freckles that danced across her cheeks
-and down her neck like constellations—small imperfections that made her seem more real, more touchable, less like the
-supernatural being she claimed to be.
+This was neither.
 
-I found myself noticing details I had no business noticing given the circumstances—the delicate curve of her jaw, the way
-her lips parted slightly when she looked at me, the graceful line of her neck. While only her face and neck were visible
+"We should go," she said again.
+
 beneath her dark clothes, I could see she had a strong, feminine figure. But it wasn't just physical attraction I felt
 (though that was certainly there, surprising me with its intensity). It was something deeper, more primal—recognition, as
 if some part of me had been waiting my whole life to meet her.
