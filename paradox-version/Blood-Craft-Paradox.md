@@ -1514,64 +1514,41 @@ true self.
 “I promise Raechelle to be completely honest,” I said, my voice steady despite the whirlwind of emotions swirling inside
 me.
 
-Raechelle nodded in acknowledgment, rising gracefully to her feet. As she did, she slowly moved her hands behind her
-head in a deliberate motion that caught my attention. I watched, captivated, as the beautiful necklace she wore slipped
-down her neck and tumbled softly onto the plush sofa. My gaze followed the delicate piece of jewelry until it settled
-among the cushions, but I quickly returned my focus to her, feeling as if I might be dreaming.
+Raechelle stood. Reached behind her head. The necklace—that choker thing she'd been wearing—slipped off and fell to the couch.
 
-In that moment, I was struck by a vision so breathtaking that it stole the breath from my lungs. Before me stood the
-most entrancing woman I had ever seen, a living embodiment of every fantasy I'd ever harbored, every dream I'd never
-dared speak aloud. Her lustrous black hair cascaded down her back like a waterfall of midnight silk, glimmering in the
-light. Perched atop her head were two perfectly formed fuzzy black cat ears, with the insides a soft, delicate pink that
-added an endearing touch of vulnerability to her fierce beauty. One of those ears twitched slightly in response to my
-gaze—actually twitched, responding to my presence—and an involuntary smile broke across my face, stretching from ear to
-ear and warming my cheeks. This was real. She was real. And she was mine.
+And then I stopped breathing.
 
-As I continued to gaze in wonder, my attention was drawn to a sleek, furry tail that swished elegantly behind her, each
-movement a testament to her grace. My heart raced as I watched the bushy black tail deftly peek out from the hem of her
-silky shorts, its glossy sheen glistening in the light. I felt a surge of admiration for her, sensing she was fully
-aware of the effect her beauty had on me.
+Cat ears. Real ones. Black with pink insides, twitching at the sound of my sharp inhale. A tail—an actual goddamn tail—sleek and black, swishing behind her. Claws at her fingertips, retractable, gleaming.
 
-With a fluid motion, she turned, allowing me to take in the full scope of her magnificence. Sharp black claws peeked out
-from beneath her fingers and toes, adding an element of fierce allure to her captivating presence. It was as if she was
-a creature from a dream, combining elegance with an undeniable wildness.
+My brain short-circuited.
 
-After circling back to her original position, she reached for the necklace, intending to put it back on. I couldn’t
-contain myself any longer.
+This wasn't cosplay. Wasn't some kinky roleplay gear. These were real. Part of her. And every fantasy I'd ever had, every late-night browser history I'd cleared, every private thought I'd buried deep—all of it was standing in front of me, breathing, watching me with those red eyes that saw too much.
 
-“Please, for the love of all the blood in the world, don’t put it back on,” I pleaded, my voice rising with intensity.
-“I honestly didn’t think you could become any more beautiful or perfect than you already are. Holy mother fucking shit,
-was I wrong!” The words escaped my mouth in a fervent proclamation, fueled by awe and appreciation.
+"Holy shit," I said. Eloquent. Really selling the whole 'dominant' thing.
 
-Startled at first by my unexpected outburst, her eyes widened in surprise. But as my words settled in, a grin
-slowly spread across her face, and she began to relax, her giggles bubbling up like a sweet melody. “You think I look
-perfect and beautiful? You actually want me to stay like this?” she asked, a playful sparkle dancing in her eyes.
+She started to reach for the necklace.
 
-With sincerity in my voice, I replied, “Absolutely! You are the embodiment of everything I have ever fantasized
-about—the woman I have dreamt of claiming as my own since I first grasped the concept. If it were entirely up to me, you
-would remain like this, radiating that perfect beauty 24/7. Yet, I completely understand why that can’t be our reality.
-But, I need you to promise me something: when it’s just us, you’ll embrace this side of yourself.” My words tumbled out,
-my heart racing as I struggled to express the depth of my feelings, still incredulous that this moment was real.
+"Don't." My voice cracked. "Don't put it back on. Please. I—" How did I explain this? That I'd been searching for her without knowing it? That every woman I'd dated was practice for this? "You're perfect. You're—fuck, you're everything."
 
-Her eyes sparkled with excitement as she squealed, “Yes, Sir! I promise I will be like this as often as I can for you.”
-Her enthusiasm was infectious, and I couldn’t help but smile at her delight.
+Her ears flattened. Embarrassment? Pleasure? I couldn't tell. Then her tail did this slow, pleased swish, and I knew.
 
-Then, I felt the gravity of the moment press upon me. I took a deep breath, steeling myself for what I was about to say.
-“Then I have one very serious, life-altering question to ask you.” I stood before her, bowing slightly to emphasize the
-significance of the moment. Maintaining eye contact, I extended my hand as if offering her a treasure, and I asked the
-most important question of the night:
+She liked hearing it.
 
-“Will you do me the honor of becoming Mine, Kitten?”
+"You actually want me like this?" Her voice was small. Vulnerable in a way that made my chest hurt.
 
-Faster than my eyes could perceive her movements, Raechelle took my hand and exclaimed, "Yes Sir, I will!" Her voice
-rang with excitement as she jumped into the air, wrapping her legs around my waist with an electrifying energy that sent
-my heart racing. The moment she secured her embrace, her eyes sparkled with pure joy, illuminating the room with her
-happiness—centuries of loneliness melting away in a single word. As her lips brushed against mine, I felt an
-overwhelming rush of passion; time seemed to stand still during the most breathtaking kiss of my life. Through the
-nascent bond between us, I felt her emotions pouring into me: relief, joy, love so profound it made my chest ache, and a
-possessive devotion that matched my own. Her tail swished playfully behind her, adding to the enchanting atmosphere
-between us. In that moment, I understood why my mother had called her my Mary Jane, my Gamora, my everything. This was
-fate, destiny, a connection that transcended time and death.
+"24/7 if I could." The words came out before I could filter them. "But I know that's not realistic. So promise me—when it's just us, you stay like this. No hiding."
+
+"Yes, Sir." The shift in her voice, in her posture—submission settling over her like a second skin—that did things to me. Things I'd need to process later when I wasn't drowning in adrenaline and grief and lust.
+
+I took a breath. Now or never. "Then I have a question. A serious one."
+
+I held out my hand. Met her eyes. "Will you be mine? Officially. My kitten, my sub, my—everything?"
+
+She moved so fast I didn't see it coming—just felt her weight as she jumped into my arms, legs around my waist, "Yes Sir yes yes yes" tumbling from her lips between kisses.
+
+And for the first time since the accident, since Mom's last breath, since my world caught fire, I felt something other than pain.
+
+I felt right.
 
 Once our embrace ended, we settled back down on the plush sofa, our laughter filling the cozy room. The warmth of the
 fire crackled softly, creating an intimate ambiance as we entered a state of blissful giddiness. We spent the next few
