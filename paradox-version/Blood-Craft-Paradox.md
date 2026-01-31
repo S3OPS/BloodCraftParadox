@@ -114,20 +114,29 @@ edge of the headlights, nor the way the moon above us had begun to shift from si
 
 # **Chapter 2**
 
-It couldn't have been more than 15 minutes after the music cut off abruptly, silencing the cheerful notes that filled
-the air and causing my head to snap up in alarm. The silence was deafening—not just the absence of music, but something
-deeper, as if the world itself had drawn a breath and held it. I glanced at my parents, their faces pale and taut in the
-dashboard's glow. They exchanged a look charged with unspoken words, a fleeting glimpse of fear and urgency that I had
-never seen before. In hushed tones, they began to mumble to each other, their voices edged with anxiety, but I strained
-to hear anything that could decipher this unsettling moment. It almost sounded like Dad muttered something about "they
-found us," but surely that couldn't be right. My imagination was playing tricks on me—what possible reason would he have
-to say that?
+Fifteen minutes of silence.
 
-“How could they even know where we are at this hour?” Mom's voice quivered with a nervous intensity that pulled my
-attention away from my swirling thoughts.
+That's how long it had been since the music died. Not faded out—died. One second Sinatra was crooning, the next there was nothing but the sound of tires on asphalt and my own breathing, too loud in my ears.
 
-“They were most likely the ones on the other end of the phone call Riven got earlier,” Dad responded, his tone grave and
-full of foreboding.
+Something was wrong.
+
+Dad and Mom were whispering. Urgent, clipped words I couldn't quite catch. I saw "they found us" shape itself on Dad's lips, though that made no fucking sense. Who? Found us where?
+
+"How could they even know where we are?" Mom's voice cracked on the last word.
+
+"The phone call." Dad's hands were strangling the steering wheel. "Had to be."
+
+Then the world went dark.
+
+Not night-dark. This was absolute—like someone had thrown a tarp over reality. The temperature dropped twenty degrees in a heartbeat. I could see my breath. Smell ozone and wet earth and something else, something that made my hindbrain scream run.
+
+The impact came from above.
+
+Something massive slammed into the roof of the car, and we were weightless, airborne, spinning. Metal screamed. Glass exploded. I hit the ceiling—no, the floor—no, the window—my body a pinball bouncing in a machine made of steel and my parents' screaming.
+
+My watch was beeping. Heart rate 165. 170. 180.
+
+Then black.
 
 Without warning, we were plunged into an impenetrable darkness as though a vast, heavy curtain had been drawn across the
 sky, swallowing the night whole. The temperature in the car plummeted, and I could see my breath misting in the sudden
@@ -167,63 +176,58 @@ grasp what was happening, I was shaken by a roaring sound that mixed with an uns
 skyward, airborne as if caught in a cyclone. In an instant, my body was thrust against the roof, and everything faded
 into an abyss of darkness.
 
-As I slowly opened my eyes, consciousness seeped back into my mind, bringing with it a jarring realization: the interior
-of the car was suffocated in a ghastly shade of red, covering nearly sixty percent of the space around me. A chilling
-wave of freezing shock washed over me as I recognized it was blood. My blood? Their blood? I couldn't tell, and the
-not-knowing was somehow worse than certainty. I strained to take in my environment, but everything remained a hazy blur,
-as if I were gazing through a fogged-up window. The relentless, high-pitched ringing in my ears was an all-too-familiar
-sound—a cruel echo of chaos that hung in the air like a ghost. Gradually, the sharp scent of gasoline invaded my
-nostrils, its potent odor sharp and suffocating, adding to my disorientation. My heart raced as I fought to steady
-myself, desperate to shake off the veil of shock clouding my thoughts. I became aware of my position: still crammed in
-the backseat, which had now toppled onto its side, a position that felt unnatural and wrong. The vehicle appeared to be
-far removed from the road, its former path obscured by darkness and debris.
+When I woke up, I was drowning in red.
 
-Above me, a full red moon cast a strange glow, its eerie light washing over the scene with a surreal vibrancy that only
-amplified my dismay. The surroundings were shrouded in an unsettling crimson hue, the world transformed into something
-nightmarish. Time seemed to stand still as I battled the disorientation, piecing together the remnants of what had
-happened and realizing the gravity of my situation.
+Not metaphor. Actual red. Blood covered sixty percent of the car's interior—the seats, the ceiling, the windows. It was in my mouth. Copper and salt. I gagged, spat, tried to breathe through the metallic stench and failed.
 
-	A soft yet urgent voice broke the tense silence from the front seat, pulling me out of my thoughts. 
+The car was on its side. I was still in the back seat, somehow. Everything was wrong-way-up. The ringing in my ears was so loud I wanted to claw it out of my skull. Gasoline. I smelled gasoline. And under that, burned meat.
 
-“Riven, are you okay?” The concern in their tone was palpable, cutting through the stillness like a knife. I glanced at
-the clock on the dashboard; time was slipping away faster than I realized. “Listen, I need you to grab something from
-the glovebox. We don’t have much time.”
+The moon stared down through the shattered windshield. Blood-red. Of course it was.
 
-Stuttering in disbelief and fear, I managed to say, “I’m fine, Mom, but where's Dad?” My voice trembled as I scanned the
-interior of the car, searching for familiar signs of comfort in a place that now felt foreign and terrifying. The
-driver’s seat was empty, an unsettling absence hanging in the air. My heart raced as I noticed the windshield, which had
-been shattered into a spiderweb of glass, glittering like shards of ice in the moonlight. The sight of my father’s door
-was even more alarming; it looked as The Hulk had ripped it off its hinges, the metal crumpled and twisted beyond
-recognition.
+"Riven." Mom's voice cut through the ringing. Weak but urgent. "Are you okay?"
 
-“Don't worry about that right now!” she barked, her voice booming with an authority that sent shivers down my spine—a
-tone I had never heard from her before. There was a raw urgency in her command that cut through my confusion. “Do as I
-asked and get to the glove box now!”
+I was okay. I was not okay. I didn't know. "Where's Dad?"
 
-Her eyes were wide with panic, and I could see the tension in her shoulders, her knuckles white as they gripped the
-edges of her seat. From my twisted position in the back, I could only see her face and shoulders; the rest was swallowed
-by shadow and crumpled metal. Thinking her seat belt had jammed or the dash had pinned her legs, I began to carefully
-climb over the seat, each utterly painful movement filled with a mix of apprehension and instinct. Then, as I leaned
-forward and moonlight caught a glint of stone, realization struck like a bolt of lightning, and I halted abruptly.
+"The glovebox," she said, ignoring my question. "Get what's inside. Now."
 
-The terrifying truth dawned on me: my mother wasn't moving because she was pinned, unable to maneuver or escape the
-destruction surrounding us. Massive, jagged spikes, seemingly forged from a blend of stone and earth, pierced through
-her, pinning her against the car's interior with an insurmountable weight. They looked wrong—too precise, too deliberate
-to be an accident of nature. 
+"Where is—"
 
-"No." The word fell from my lips, barely a whisper. "No, no, no..." My mind refused to accept what my eyes were seeing.
-This couldn't be real. Any second now, I'd wake up in the backseat, Mom would turn around and smile, tell me we were
-almost there. But the metallic tang of blood filled my nostrils, mixing with the acrid smell of twisted metal and
-something ancient—earth and stone that didn't belong here.
+"NOW!"
 
-It was not alone; several other similar spikes protruded ominously throughout the dimly lit cabin and my mother's body,
-each one a menacing reminder that this was no accident. This was murder. Deliberate. Planned. Someone had done this to
-her—to us.
+The command hit me like a slap. Mom never yelled. Ever. I blinked blood out of my eyes and looked at the driver's seat.
 
-"Mom..." My voice cracked, a child's plea wrapped in an adult's throat.
+Empty.
 
-I tried to shake the haunting image from my mind, even though I knew it would remain seared into my consciousness
-forever—the way the moonlight caught the blood, the impossible angle of the spikes, the too-still stillness of her body.
+The door was gone. Not hanging open—gone. Torn off the hinges. The windshield looked like something had punched through it from the inside. Diamonds of safety glass glittered in the moonlight like scales.
+
+"Mom, where—"
+
+"The glovebox, Riven. We don't have time."
+
+I started climbing over the seat. Every movement sent pain lancing through my ribs, my shoulder, my—everything. Then I got a good look at her in the moonlight, and my world narrowed to a single point of horror.
+
+She wasn't pinned.
+
+She was impaled.
+
+Stone spikes. Three of them. Each one thick as my forearm, erupting from nowhere—through the dashboard, through the seat, through her. One through her chest. One through her abdomen. One through her right thigh.
+
+They weren't random. They were placed. Surgical. Deliberate.
+
+"Mom—"
+
+"The glovebox." Blood bubbled at the corner of her mouth when she spoke. "There's a box. Red velvet. Bring it to me."
+
+My hands wouldn't stop shaking. I couldn't look away from the spike in her chest, from the way it had punched through her sternum and out her back, pinning her to the seat like a butterfly in a collector's case.
+
+This wasn't an accident. This was murder.
+
+"Mom, we need to—I'll call 911, I'll—"
+
+"No time." Her voice was weakening. I could hear the liquid in her lungs, the way her breath rattled. "Please, baby. The box. Before he comes back."
+
+He. Someone had done this. Was still here.
+
 My heart raced as I reached for the glove box, my fingers trembling violently. The mystery of what lay inside beckoned to
 me through the fog of denial still clinging to my thoughts.
 
@@ -255,6 +259,28 @@ and there was nothing I could do to stop it. The chilling emptiness that crept i
 away from me, and the world tilted on its axis.
 
 "No! Mom! MOM!" The scream tore from my throat, raw and primal. This wasn't happening. This couldn't be happening.
+
+I found it. The metal case. Red velvet box inside. A vial of something dark that caught the moonlight wrong.
+
+Mom's eyes were empty. Not dead—I'd know if she was dead, right? I'd feel it—but going. Leaving. The light draining out like water through a sieve.
+
+"Mom—MOM!"
+
+Gasoline. The smell hit me like a fist. The car was leaking, had been leaking, the whole time we'd been—
+
+Hands grabbed me from behind. Yanked me out through the broken window. I hit the ground hard enough to see stars, and then the world went white-hot and LOUD as the car exploded. Heat washed over me in a wave. The smell of burning upholstery, melting plastic, cooking meat.
+
+Mom.
+
+I tried to crawl back toward the flames. Had to get her. Had to—
+
+Someone kicked me flat. Not hard. Just enough. When I looked up, gasping, choking on smoke and grief, I saw her.
+
+Hoodie. Dark jeans. Face in shadow. But her eyes—Jesus Christ, her eyes—glowed red like embers. Like the moon. Like the blood on my hands.
+
+"You fucking asshole!" The scream tore out of me. "My mom was still in there!"
+
+"She was already dead." The woman's voice was flat. Matter-of-fact. Like she was commenting on the weather. "I could hear her heartbeat no more."
 
 A wave of dread surged through my chest, and I was engulfed by the increasingly acrid scent of cheap unleaded fuel that
 permeated the air. Panic coursed through me, urging me to act and scramble out of the soon-to-be death trap. I had to
