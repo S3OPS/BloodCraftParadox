@@ -4497,25 +4497,25 @@ But I was learning the rules. And soon, I'd be strong enough to make my own.
 
 ## The Crimson Ball
 
-The invitation arrived three days after our meeting with Morgana Blackwood, delivered by a messenger vampire whose formality bordered on theatrical. It was written in elegant calligraphy on parchment that shimmered with embedded enchantments, sealed with the Council's official crest in crimson wax.
+The invitation arrived three days after our meeting with Morgana Blackwood. Delivered by messenger vampire whose formality bordered on theatrical. Elegant calligraphy on parchment shimmering with embedded enchantments. Sealed with Council's official crest in crimson wax.
 
-*You are cordially invited to The Crimson Ball, Nocturne's annual celebration of unity and prosperity. As a newly recognized Blood Archon and resident of this great city, your attendance is required. Formal attire mandatory. Plus one permitted.*
+*You are cordially invited to The Crimson Ball, Nocturne's annual celebration. As newly recognized Blood Archon and resident, your attendance is required. Formal attire mandatory. Plus one permitted.*
 
 *—Lady Seraphina Darkthorne, Council Head*
 
-Raechelle read it over my shoulder, her breath warm against my neck. "Required attendance. How diplomatic of them."
+Raechelle read it over my shoulder. Breath warm against my neck. "Required attendance. How diplomatic."
 
-"They want to show me off," I said, setting the invitation aside. "Parade the young Blood Archon in front of Nocturne's elite, see how I perform under pressure."
+"They want to show me off," I said. Set the invitation aside. "Parade the young Blood Archon in front of Nocturne's elite. See how I perform under pressure."
 
-"And see who approaches you. Who tries to curry favor, who avoids you, who makes threats." Her amber eyes gleamed with understanding. "It's a test, Sir. And an opportunity."
+"And see who approaches you. Who tries to curry favor. Who avoids you. Who makes threats." Her amber eyes gleamed. "It's a test, Sir. And an opportunity."
 
 "An opportunity for what?"
 
-"To show them you're not intimidated. That you belong in their world." She moved to stand in front of me, her hands smoothing down the front of my shirt. "And to show the entire supernatural community that you're mine."
+"To show them you're not intimidated. That you belong in their world." She moved to stand in front of me. Hands smoothing down the front of my shirt. "And to show the entire supernatural community that you're mine."
 
 The possessiveness in her tone sent heat through my veins. "Is that right?"
 
-"Absolutely." Her smile was wicked. "You're going to look devastatingly handsome in formal wear, and every unmated female in Nocturne is going to notice. I intend to make it clear that you're taken."
+"Absolutely." Her smile was wicked. "You're going to look devastating in formal wear, and every unmated female in Nocturne is going to notice. I intend to make it clear you're taken."
 
 "I like the way you think."
 
@@ -4523,19 +4523,19 @@ The possessiveness in her tone sent heat through my veins. "Is that right?"
 
 ---
 
-Preparing for The Crimson Ball turned out to be far more complicated than I'd anticipated. Raechelle took the project seriously, drilling me on supernatural protocols and social customs that made my head spin.
+Preparing for The Crimson Ball turned out to be far more complicated than anticipated. Raechelle took the project seriously. Drilling me on supernatural protocols and social customs made my head spin.
 
-"When greeting a vampire elder, you acknowledge them first—age commands respect in their culture. But when greeting a werewolf alpha, you wait for them to acknowledge you, or you'll be seen as challenging their dominance." She paced our study as I tried keep notes. "Fae nobility expects eloquent compliments, but keep them vague—too specific and they'll think you're trying to bind them with your words. And whatever you do, don't accept food or drink from anyone you don't trust completely."
+"When greeting vampire elder, you acknowledge them first—age commands respect in their culture. But when greeting werewolf alpha, you wait for them to acknowledge you, or you'll be seen as challenging their dominance." She paced our study as I tried to keep notes. "Fae nobility expects eloquent compliments, but keep them vague—too specific and they'll think you're trying to bind them with your words. And whatever you do, don't accept food or drink from anyone you don't trust completely."
 
 "Why? Poison?"
 
-"Or binding spells, truth serums, love potions—the list goes on." She sighed at my expression. "Welcome to supernatural high society, Sir. It's a minefield."
+"Or binding spells. Truth serums. Love potions—the list goes on." She sighed at my expression. "Welcome to supernatural high society, Sir. It's a minefield."
 
-Lysandra arrived on the second day with an armload of books and a wicked grin. "Morgana sent these. Histories of past Crimson Balls—who allied with whom, which feuds started on the dance floor, who tried kill whom in the gardens."
+Lysandra arrived on second day with armload of books. Wicked grin. "Morgana sent these. Histories of past Crimson Balls—who allied with whom. Which feuds started on dance floor. Who tried to kill whom in the gardens."
 
-"That's encouraging," I said. dryly.
+"That's encouraging," I said dryly.
 
-"There haven't been any successful assassinations at a Crimson Ball in over fifty years," Lysandra assured me, then paused. "Well, any proven ones. There were a few suspicious deaths that might have been—"
+"There haven't been any successful assassinations at Crimson Ball in over fifty years," Lysandra assured me. Then paused. "Well, any proven ones. There were a few suspicious deaths that might were—"
 
 "You're not helping."
 
@@ -4543,15 +4543,15 @@ Lysandra arrived on the second day with an armload of books and a wicked grin. "
 
 Viktor stopped by that evening, looking uncomfortable in anything other than his usual practical clothing. "Elder Mara wanted me to tell you that the Ironclad pack will be watching during the ball. If anyone tries anything..." He cracked his knuckles meaningfully. "They'll regret it."
 
-"Isn't violence at the Crimson Ball forbidden?"
+"Isn't violence at Crimson Ball forbidden?"
 
 "Defense isn't violence. It's protection." His grin was all teeth. "Besides, we're werewolves. We're good at finding loopholes."
 
-By the day of the ball, I was as prepared as I was going to get. Raechelle had arranged for formal attire to be delivered—a tailored black suit with subtle blood-red accents that matched my power's signature. The fabric was enhanced with protective wards, courtesy of Lysandra's coven.
+By the day of ball, I was as prepared as I would get. Raechelle had arranged for formal attire to be delivered—a tailored black suit with subtle blood-red accents that matched my power's signature. The fabric was enhanced with protective wards, courtesy of Lysandra's coven.
 
 "They won't stop a direct magical attack," Lysandra had explained. "But they'll slow down curses, deflect minor hexes, and warn you if someone tries to slip you a potion."
 
-I stood in front of the mirror, adjusting the crimson tie that Raechelle had insisted upon, and barely recognized myself. I looked... dangerous. Powerful. Like someone who belonged in a room full of ancient supernatural beings.
+I stood in front of mirror, adjusting the crimson tie that Raechelle had insisted upon, and barely recognized myself. I looked... dangerous. Powerful. Like someone who belonged in a room full of ancient supernatural beings.
 
 "You clean up well, Sir."
 
@@ -4569,7 +4569,7 @@ She was stunning. Her dress was midnight blue, almost black, that clung to her c
 
 ---
 
-The Crimson Ball was held in the Grand Hall of the Council building, a space I'd never seen before. It was breathtaking—vaulted ceilings that seemed to stretch into infinity, walls lined with crystalline formations that pulsed with stored magic, and a dance floor made of polished obsidian that reflected the room like a dark mirror.
+The Crimson Ball was held in the Grand Hall of Council building, a space I'd never seen before. It was breathtaking—vaulted ceilings that seemed stretch into infinity, walls lined with crystalline formations that pulsed with stored magic, and a dance floor made of polished obsidian that reflected the room like a dark mirror.
 
 Supernatural beings of every variety filled the space, all dressed in their finest. Vampires in elegant evening wear that spanned centuries of fashion. Werewolves in formal attire that somehow still conveyed their wild nature. Witches and warlocks in flowing robes decorated with mystical symbols. Even a few fae, their otherworldly beauty almost painful to look at directly.
 
@@ -4589,13 +4589,13 @@ Raechelle's hand tightened on my arm. *Breathe, Sir. You've faced worse than cur
 
 *Minor detail.*
 
-I couldn't help the laugh that escaped, drawing more attention but also breaking the tension in my chest. We descended the stairs into the hall, and gradually the buzz of conversation resumed.
+I couldn't help the laugh that escaped, drawing more attention but also breaking the tension in my chest. We descended the stairs into hall, and gradually the buzz of conversation resumed.
 
 Lady Seraphina Darkthorne appeared almost immediately, resplendent in a gown of deep crimson that matched her name. "Riven, Raechelle. How lovely of you to join us." Her smile was warm, but her eyes were assessing. "Your first Crimson Ball. Try not to start any wars."
 
 "I'll do my best," I replied.
 
-"See that you do. Oh, and a word of advice?" She leaned in slightly, her voice dropping. "Ambassador Kaine is here. He'll likely approach you at some point. Be polite, but give him nothing he can use against you."
+"See that you do. Oh, and a word of advice?" She leaned in , her voice dropping. "Ambassador Kaine is here. He'll likely approach you at some point. Be polite, but give him nothing he can use against you."
 
 "Understood."
 
@@ -4615,7 +4615,7 @@ Lysandra rescued us after the first hour, appearing with champagne glasses and a
 
 "Ambassador Kaine has been watching you since you arrived. And he looks..." She paused, searching for the word. "Calculating."
 
-I followed her gaze and spotted him across the room. The Earth Archon's representative was tall and severe, with stone-gray eyes that seemed to see through flesh to the power beneath. When our eyes met, he smiled—and it was not a friendly expression.
+I followed her gaze and spotted him across the room. The Earth Archon's representative was tall and severe, with stone-gray eyes that seemed see through flesh to power beneath. When our eyes met, he smiled—and it was not a friendly expression.
 
 "He's going to approach you," Raechelle murmured. "And soon."
 
@@ -4625,11 +4625,11 @@ She was right. Five minutes later, Ambassador Kaine materialized beside us, his 
 
 "Ambassador Kaine." I kept my tone neutral. "I'm honored."
 
-"Are you?" He studied me with unsettling intensity. "Most would be wary. The Blood Archons and Earth Archons have... history."
+"Are you?" He studied me with unsettling intensity. "Most was wary. The Blood Archons and Earth Archons have... history."
 
-"I'm aware of the history. I'm also aware that the past doesn't have to dictate the future."
+"I'm aware of history. I'm also aware that the past doesn't have to dictate the future."
 
-"Wise words. Naive, but wise." He gestured to the ballroom around us. "Tell me, what do you think of our little gathering? Impressive, isn't it? All of Nocturne's power and influence in one room."
+"Wise words. Naive, but wise." He gestured to ballroom around us. "Tell me, what do you think of our little gathering? Impressive, isn't it? All of Nocturne's power and influence in one room."
 
 "It's certainly educational."
 
@@ -4643,7 +4643,7 @@ She was right. Five minutes later, Ambassador Kaine materialized beside us, his 
 
 "It's a truth." He straightened. "But please, enjoy your evening. Dance, drink, celebrate. Tomorrow, the real world returns." He nodded to Raechelle. "Familiar."
 
-Then he was gone, disappearing into the crowd like a stone sinking into dark water.
+Then he was gone, disappearing into crowd like a stone sinking into dark water.
 
 "Well," Raechelle said after a moment. "He's charming."
 
@@ -4651,9 +4651,9 @@ Then he was gone, disappearing into the crowd like a stone sinking into dark wat
 
 "Did it work?"
 
-"A little," I admitted. "But it also pissed me off. Which might have been the point."
+"A little," I admitted. "But it also pissed me off. Which might were the point."
 
-Lysandra had been watching the exchange from a discrete distance. She approached now, her expression troubled. "He's making his move. That wasn't a social courtesy—that was a declaration."
+Lysandra was watching the exchange from a discrete distance. She approached now, her expression troubled. "He's making his move. That wasn't a social courtesy—that was a declaration."
 
 "Of what?"
 
@@ -4661,7 +4661,7 @@ Lysandra had been watching the exchange from a discrete distance. She approached
 
 ---
 
-The music began shortly after, a haunting melody that seemed to resonate with the crystals in the walls. Couples began moving onto the dance floor, and I knew what was expected.
+The music began shortly after, a haunting melody that seemed resonate with the crystals in the walls. Couples began moving onto the dance floor, and I knew what was expected.
 
 "Dance with me?" I offered Raechelle my hand.
 
@@ -4673,7 +4673,7 @@ She flowed into my arms like she'd been made to fit there, her body moving in pe
 
 *This is perfect.* Her mental voice was warm. *Let them all see. Let them know you're mine and I'm yours.*
 
-We weren't alone on the dance floor for long. Viktor appeared with a stunning werewolf woman, and he nodded respectfully as they swept past. Lysandra danced with a warlock I didn't recognize, her expression unreadable. Even Lady Seraphina joined the dance, partnered with a vampire lord who moved with centuries of practiced grace.
+We weren't alone on dance floor for long. Viktor appeared with a stunning werewolf woman, and he nodded respectfully as they swept past. Lysandra danced with a warlock I didn't recognize, her expression unreadable. Even Lady Seraphina joined the dance, partnered with a vampire lord who moved with centuries of practiced grace.
 
 "Everyone is watching us," I murmured.
 
@@ -4685,17 +4685,17 @@ We weren't alone on the dance floor for long. Viktor appeared with a stunning we
 
 "Then I guess we're challenging centuries of tradition."
 
-"Just one of the many ways you're going to change the world."
+"Just one of many ways you're going to change the world."
 
-The music shifted, becoming faster, more intense. Our movements matched the tempo, and I found myself lost in the rhythm, in Raechelle, in the moment. For a little while, I could forget about Terravos, about traitors on the Council, about disappearances in the outer districts.
+The music shifted, becoming faster, more intense. Our movements matched the tempo, and I lost in the rhythm, in Raechelle, in the moment. For while, I could forget about Terravos, about traitors on Council, about disappearances in the outer districts.
 
-For a little while, I was just a young man dancing with the woman he loved.
+For while, I was just a young man dancing with the woman he loved.
 
 Then the screaming started.
 
 ---
 
-The attack came from the gardens adjacent to the ballroom. One moment, couples were dancing and conversations were flowing. The next, the crystal walls exploded inward in a shower of deadly shards.
+The attack came from gardens adjacent to ballroom. One moment, couples were dancing and conversations were flowing. The next, the crystal walls exploded inward in a shower of deadly shards.
 
 Dark figures poured through the breach—supernatural beings twisted by corrupted magic, their forms warped and wrong. Earth elementals given monstrous shape, moving with inhuman speed and strength.
 
@@ -4709,7 +4709,7 @@ Then instinct took over.
 
 I reached out with my power, finding the traces of blood that still flowed through its corrupted form. Found it. Grasped it. And *squeezed*.
 
-The elemental stumbled, its movement suddenly uncoordinated. I pressed harder, not trying to kill but to control, to disorient. It crashed to the ground, thrashing.
+The elemental stumbled, its movement suddenly uncoordinated. I pressed harder, not trying to kill but to control, to disorient. It crashed to ground, thrashing.
 
 "Behind you!" Raechelle's warning came through the bond just in time. I spun, throwing up a blood barrier as another attacker's claws swept toward my face. The barrier held, then I pushed, sending the creature staggering back into Viktor's path.
 
@@ -4717,17 +4717,17 @@ The werewolf champion, now in his hybrid war-form, tore into it with savage effi
 
 "They're targeting the Council members!" Lysandra appeared at my side, her hands wreathed in crackling magical energy. "This isn't random—it's an assassination attempt!"
 
-I scanned the chaos and saw she was right. The attackers were moving with purpose, pushing toward the raised dais where the Council had been observing the festivities. Lady Seraphina was there, surrounded by a protective circle of vampires, but others weren't so lucky. I saw Councilor Meridia—the truth-reader who'd proven my innocence—fighting off two attackers with crystalline magic.
+I scanned the chaos and saw she was right. The attackers were moving with purpose, pushing toward the raised dais where the Council was observing the festivities. Lady Seraphina was there, surrounded by a protective circle of vampires, but others weren't so lucky. I saw Councilor Meridia—the truth-reader who'd proven my innocence—fighting off two attackers with crystalline magic.
 
 "Help Meridia!" I shouted to Lysandra. Then to Raechelle through the bond: *I'm going after the Council. Stay close but be careful.*
 
 *Always, Sir. Always.*
 
-We moved through the chaos like water, my blood sense letting me track the attackers even in the crowd. I disabled two more elementals, using my power to disrupt their forms from the inside. It was brutal work, forcing corruption out through force of will, but it worked.
+We moved through the chaos like water, my blood sense letting me track the attackers even in the crowd. I disabled two more elementals, using my power to disrupt their forms from inside. It was brutal work, forcing corruption out through force of will, but it worked.
 
 Then I saw him.
 
-Ambassador Kaine stood at the edge of the ballroom, watching the carnage with an expression that was far too satisfied. He wasn't fighting. Wasn't helping. Just... observing.
+Ambassador Kaine stood at edge of ballroom, watching the carnage with an expression that was far too satisfied. He wasn't fighting. Wasn't helping. Just... observing.
 
 Our eyes met across the chaos, and he smiled. Then he turned and walked calmly toward the exit.
 
@@ -4763,15 +4763,15 @@ I forced my power down, my hands unclenching. "Tell Terravos that I'm not going 
 
 "Then they'll die too." Kaine's expression didn't change. "Remember this moment, young Archon. Remember that you had a chance to save these people and chose pride instead."
 
-He walked away, and I let him go. Because Raechelle was right. Because killing him here, now, would be exactly what Terravos wanted.
+He walked away, and I let him go. Because Raechelle was right. Because killing him here, now, was exactly what Terravos wanted.
 
 But watching him leave felt like swallowing broken glass.
 
 ---
 
-The attack ended almost as quickly as it began. Once it became clear their assassination attempt had failed, the surviving attackers retreated or were captured. The Grand Hall was a disaster—shattered crystal, blood on the obsidian floor, the stench of corrupted magic lingering in the air.
+The attack ended almost as quickly as it began. Once it became clear their assassination attempt had failed, the surviving attackers retreated or were captured. The Grand Hall was a disaster—shattered crystal, blood on obsidian floor, the stench of corrupted magic lingering in the air.
 
-The casualties weren't as bad as they could have been. Three deaths—two vampires and a werewolf who'd been in the wrong place when the walls exploded. A dozen serious injuries. And everyone was shaken, the illusion of Nocturne's perfect safety thoroughly shattered.
+The casualties weren't as bad as they could were. Three deaths—two vampires and a werewolf who'd been in the wrong place when the walls exploded. A dozen serious injuries. And everyone was shaken, the illusion of Nocturne's perfect safety thoroughly shattered.
 
 I found Raechelle helping tend the wounded, her dress torn and blood-spattered but her hands steady as she held pressure on a witch's lacerated arm.
 
@@ -4779,7 +4779,7 @@ I found Raechelle helping tend the wounded, her dress torn and blood-spattered b
 
 "I am. You?"
 
-"Unharmed. Just..." She gestured to the carnage around us. "This is what we're fighting, isn't it? This is what Terravos is willing to do."
+"Unharmed. Just..." She gestured to carnage around us. "This is what we're fighting, isn't it? This is what Terravos is willing to do."
 
 "This is just the beginning," Lady Seraphina said, appearing beside us. Her gown was singed and torn, and a cut along her cheek, but her eyes were sharp. "He's declared war. Subtly, with plausible deniability, but war nonetheless."
 
@@ -4797,7 +4797,7 @@ I told her about my confrontation with Kaine, about his thinly veiled threats an
 
 "He knows you can't prove it. It'll be my word against his."
 
-"Actually," Lysandra approached, looking somewhat disheveled but triumphant, "it won't be. I had a recording crystal active—mother's paranoia about documenting everything finally pays off. I caught the whole conversation."
+"Actually," Lysandra approached, looking disheveled but triumphant, "it won't be. I had a recording crystal active—mother's paranoia about documenting everything finally pays off. I caught the whole conversation."
 
 Seraphina's smile was sharp as a blade. "Did you now? How fortuitous."
 
@@ -4807,11 +4807,11 @@ Seraphina's smile was sharp as a blade. "Did you now? How fortuitous."
 
 "Will it stop him?"
 
-"No. But it will slow him down. Make him more cautious. And it will unite the Council—even those who might have been sympathetic to appeasement will see this attack as too far." She placed a hand on my shoulder. "You did well tonight, Riven. Defended our people, showed restraint when provoked. That matters."
+"No. But it will slow him down. Make him more cautious. And it will unite the Council—even those who might were sympathetic to appeasement will see this attack as too far." She placed a hand on my shoulder. "You did well tonight, Riven. Defended our people, showed restraint when provoked. That matters."
 
 "People still died."
 
-"People die in wars. And make no mistake—we're at war now, whether we wanted it or not." Her grip tightened slightly. "The question is whether we'll be ready when Terravos makes his next move."
+"People die in wars. And make no mistake—we're at war now, whether we wanted it or not." Her grip tightened . "The question is whether we'll be ready when Terravos makes his next move."
 
 ---
 
@@ -4833,7 +4833,7 @@ I collapsed onto our couch, and Raechelle immediately curled into my side, her h
 
 "Smooth." But she smiled. "What about the rest? The politics, the danger, the responsibility?"
 
-I thought about it. About the people I'd helped tonight, the alliances I was building, the difference I might actually make in this impossible city.
+I thought about it. About the people I'd helped tonight, the alliances I was building, the difference I might make in this impossible city.
 
 "I'm learning to want it," I said. slowly. "Or at least, to accept it. This is who I am now. Blood Archon. Protector. Whatever that means."
 
@@ -4841,17 +4841,17 @@ I thought about it. About the people I'd helped tonight, the alliances I was bui
 
 "Best plan I've heard all day."
 
-We made it to the bedroom, shed our destroyed formal wear, and collapsed into bed still wearing our underclothes. Within minutes, I felt Raechelle's breathing even out as she fell asleep.
+We made it to bedroom, shed our destroyed formal wear, and collapsed into bed still wearing our underclothes. Within minutes, I felt Raechelle's breathing even out as she fell asleep.
 
-I lay there in the darkness, staring at the ceiling, my mind replaying the night's events.
+I lay there in the darkness, staring at ceiling, my mind replaying the night's events.
 
-The dancing had been perfect. The attack had been terrifying. Kaine's words had been a poison I couldn't shake off.
+The dancing was perfect. The attack was terrifying. Kaine's words was a poison I couldn't shake off.
 
 But I was alive. Raechelle was alive. We'd made new allies, impressed the Council, and given Terravos a bloody nose in the process.
 
 It wasn't a victory, exactly. But it wasn't a defeat either.
 
-And in this new world I found myself in, that might be the best I could hope for.
+And in this new world I in, that was the best I could hope for.
 
 For now.
 
@@ -4870,13 +4870,13 @@ The morning after the Crimson Ball attack, I woke to find Raechelle already dres
 
 "Sir, we need to talk about what happened last night." Her amber eyes were troubled. "About what Kaine said."
 
-I sat up, the memories of the attack flooding back. "About Terravos tearing Nocturne apart to get to me?"
+I sat up, the memories of attack flooding back. "About Terravos tearing Nocturne apart to get to me?"
 
 "About why he wants you so badly." She stopped pacing and faced me. "I've been thinking about your mother's journal. About the memory crystal. About everything Elara left behind. There's something we're missing—something your parents were protecting that goes beyond simple revenge."
 
 I reached for my pants, my mind already racing. "The restricted archives. The ones Lady Seraphina mentioned when we first arrived."
 
-"Exactly. Blood Archon family records going back centuries. If there's something specific that makes you so valuable to Terravos, it'll be there." She moved to the window, looking out at the eternal twilight. "I think it's time we discovered what your parents were running from."
+"Exactly. Blood Archon family records going back centuries. If there's something specific that makes you so valuable to Terravos, it'll be there." She moved to window, looking out at eternal twilight. "I think it's time we discovered what your parents were running from."
 
 ---
 
@@ -4892,23 +4892,23 @@ A ghost of a smile touched his pale lips. "Fair enough, young Archon. Follow me.
 
 He led us through corridors lined with shelves that stretched into shadow, past sections marked for vampire bloodlines, werewolf packs, witch covens, and stranger things I couldn't identify. The air smelled of old paper, leather, and magic so ancient it felt like pressure against my skin.
 
-Finally, we reached a section marked with a symbol I recognized from my mother's journal—a crimson droplet enclosed in a circle, the sigil of the Blood Archons.
+Finally, we reached a section marked with a symbol I recognized from my mother's journal—a crimson droplet enclosed in a circle, the sigil of Blood Archons.
 
 Lucien placed his palm against the bronze door. "This archive is protected by blood magic. Only one of Sixxx lineage may enter." He glanced at Raechelle. "Your familiar may accompany you, as she is bound to your blood. But I must wait outside."
 
-"Understood." I placed my own hand on the door, and felt it respond immediately—warmth spreading through the metal, recognizing me, welcoming me. The door swung open silently.
+"Understood." I placed my own hand on door, and felt it respond immediately—warmth spreading through the metal, recognizing me, welcoming me. The door swung open silently.
 
-Inside was a chamber that took my breath away. The walls were lined with shelves containing leather-bound volumes, scrolls, and crystalline memory orbs that pulsed with contained magic. But it was the center of the room that drew my attention—a stone pedestal holding a single book, its cover marked with the same sigil as the door.
+Inside was a chamber that took my breath away. The walls were lined with shelves containing leather-bound volumes, scrolls, and crystalline memory orbs that pulsed with contained magic. But it was the center of room that drew my attention—a stone pedestal holding a single book, its cover marked with the same sigil as the door.
 
 "The Codex Sanguinis," Raechelle breathed. "The Book of Blood. I thought it was a legend."
 
-"Apparently not." I approached the pedestal carefully, half-expecting some sort of trap or test. But the book simply sat there, waiting.
+"Apparently not." I approached the pedestal carefully, half-expecting some trap or test. But the book simply sat there, waiting.
 
 When I touched it, power flooded through me—not hostile, but overwhelming. Memories that weren't mine, knowledge accumulated over millennia, the weight of a bloodline older than recorded history.
 
 I opened the book.
 
-The first pages detailed the origin of the Blood Archons—not born from magic like other supernatural beings, but created. Forged by the first Council of Archons to maintain balance in a world where power threatened to consume everything. Blood Archons were designed to be the ultimate arbiters, capable of controlling the life force of any being, making them feared and respected by all others.
+The first pages detailed the origin of Blood Archons—not born from magic like other supernatural beings, but created. Forged by the first Council of Archons to maintain balance in a world where power threatened to consume everything. Blood Archons were designed to be the ultimate arbiters, capable of controlling the life force of any being, making them feared and respected by all others.
 
 But with that power came a terrible burden.
 
@@ -4966,7 +4966,7 @@ She met my eyes, and through our bond I felt her absolute certainty. "Always, Si
 
 ---
 
-We performed the ritual that night, in the privacy of our bedroom, under the eternal twilight sky visible through our windows. Raechelle had prepared the space according to the scroll's instructions—candles in a circle, protective wards, and a silver blade for the blood exchange.
+We performed the ritual that night, in the privacy of our bedroom, under the eternal twilight sky visible through our windows. Raechelle had prepared the space according to scroll's instructions—candles in a circle, protective wards, and a silver blade for the blood exchange.
 
 "The key is intent," she explained, her voice steady despite the momentous nature of what we were attempting. "You must want this not for power's sake, but to protect what you love. Otherwise, the magic will reject you or worse—consume you."
 
@@ -4984,7 +4984,7 @@ Beyond her, I sensed every living thing in Nocturne. Thousands of supernatural b
 
 "Focus," Raechelle commanded, her voice anchoring me. "Don't lose yourself in the vastness. You are Riven Sixxx. You are mine. Remember who you are."
 
-I pulled back from the overwhelming sensory input, centering myself in our bond. Using her as my anchor, I carefully explored these new abilities, learning to filter and control what I was sensing.
+I pulled back from overwhelming sensory input, centering myself in our bond. Using her as my anchor, I carefully explored these new abilities, learning to filter and control what I was sensing.
 
 Blood Memory came next—genetic knowledge flowing through me like water. I saw through my mother's eyes as she first discovered her powers. I felt my grandfather's pride and burden. I experienced centuries of Blood Archon history in compressed moments.
 
@@ -5026,21 +5026,21 @@ I told her everything—about the Balance, about my parents' refusal to fulfill 
 
 Her expression remained carefully neutral throughout my explanation. When I finished, she was silent for a long moment.
 
-"Your mother came to me before she left Nocturne," she finally said. "She asked me to watch for her son, should he ever return. She knew this day might come—that you might be forced to confront the destiny she tried spare you from."
+"Your mother came to me before she left Nocturne," she finally said. "She asked me to watch for her son, should he ever return. She knew this day might come—that you was forced to confront the destiny she tried spare you from."
 
 "Did she tell you what she wanted me to do?"
 
-"She told me to give you a choice. To let you decide for yourself what kind of Blood Archon you wanted to be." Seraphina moved to her window, looking out over Nocturne. "The Balance system is ancient, yes. But it's also flawed. It demands sacrifice without consent, servitude without compensation. Your parents were right to question it."
+"She told me to give you a choice. To let you decide for yourself what Blood Archon you wanted to be." Seraphina moved to her window, looking out over Nocturne. "The Balance system is ancient, yes. But it's also flawed. It demands sacrifice without consent, servitude without compensation. Your parents were right to question it."
 
 "But without a Balance—"
 
 "Without a Balance, we must find new ways to maintain peace. Perhaps ways that don't require one person to bear the burden for all." She turned back to me. "I won't force you into that role, Riven. No one will. You've already done more for Nocturne than anyone had a right to ask."
 
-Her words should have been a relief. Instead, they felt like a weight—because now the choice was truly mine.
+Her words should were a relief. Instead, they felt like a weight—because now the choice was truly mine.
 
 "I need time to think," I said.
 
-"Of course. But Riven?" She fixed me with a penetrating stare. "Whatever you decide about the Balance, know this: Terravos won't give up. He's built his entire strategy around either controlling you or destroying you. You've denied him both options so far, but he will escalate. The attack at the Crimson Ball was just the beginning."
+"Of course. But Riven?" She fixed me with a penetrating stare. "Whatever you decide about the Balance, know this: Terravos won't give up. He's built his entire strategy around either controlling you or destroying you. You've denied him both options so far, but he will escalate. The attack at Crimson Ball was just the beginning."
 
 "I know. I'm ready."
 
@@ -5054,9 +5054,9 @@ My heart rate picked up. Corvinus, the ancient vampire who served as the Council
 
 ---
 
-I left the Council Hall with my mind spinning. In the span of a day, I'd discovered my true heritage, awakened dormant powers, and been offered training that could make me one of the most formidable beings in Nocturne.
+I left the Council Hall with my mind spinning. In the span of a day, I'd discovered my true heritage, awakened dormant powers, and been offered training that could make me one of most formidable beings in Nocturne.
 
-But it all came back to the same question: what kind of Blood Archon did I want to be?
+But it all came back to same question: what Blood Archon did I want to be?
 
 "You're overthinking this, Sir," Raechelle said as we walked through the Grand Promenade. "You're not your parents. You're not the ancient Blood Archons who created the Balance system. You're Riven—the man who spared Viktor when you could have killed him, who defended Nocturne without asking for payment, who chose love over power at every turn."
 
@@ -5070,11 +5070,11 @@ I squeezed her hand, drawing strength from her certainty. She was right. The Blo
 
 "Then we face whatever comes next. Together." Raechelle smiled. "Like we always do."
 
-We continued home through Nocturne's eternal twilight, past supernatural beings going about their lives, unaware of the storm gathering on their borders.
+We continued home through Nocturne's eternal twilight, past supernatural beings going about their lives, unaware of storm gathering on their borders.
 
 But I was aware. And with my new powers, it—the tension building, the pieces moving into place, the inevitable confrontation drawing closer.
 
-Terravos was coming. And when he did, I would be ready.
+Terravos was coming. And when he did, I was ready.
 
 Not as a Balance forced into servitude.
 
@@ -5099,97 +5099,99 @@ Now it was time to show everyone what I chose to be.
 
 ## The Hunt Begins
 
-The attack came three days later, just before dawn when Nocturne's defenses were at their weakest.
+The attack came three days later. Just before dawn. Nocturne's defenses at their weakest.
 
-I was in the training grounds beneath the Academy with Magistrate Corvinus, learning to manipulate blood at a molecular level—a technique that required absolute precision and could take decades to master. Corvinus had me practicing on drops of my own blood, forcing me to sense each individual cell and bend it to my will.
+I was in training grounds beneath the Academy with Magistrate Corvinus. Learning to manipulate blood at molecular level—technique requiring absolute precision. Could take decades to master. Corvinus had me practicing on drops of my own blood. Forcing me to sense each individual cell. Bend it to my will.
 
-"Patience, young Archon," the ancient vampire said, his tone neither harsh nor gentle. "Blood is not a weapon to be wielded—it is a language to be spoken. You must learn its grammar before you can compose poetry."
+"Patience, young Archon," the ancient vampire said. Tone neither harsh nor gentle. "Blood is not weapon to be wielded—it is language to be spoken. You must learn its grammar before you can compose poetry."
 
-Then the alarm bells began ring.
+Then the alarm bells.
 
-Corvinus's head snapped up, his ageless eyes suddenly sharp. "That's the northern border. Multiple breaches."
+Corvinus's head snapped up. Ageless eyes suddenly sharp. "Northern border. Multiple breaches."
 
-Through my newly awakened Blood Sight, I felt it—a surge of hostile life forces pressing against Nocturne's perimeter. Not just one or two attackers, but dozens. Maybe more.
+Through my newly awakened Blood Sight, I felt it—surge of hostile life forces pressing against Nocturne's perimeter. Not just one or two. Dozens. Maybe more.
 
 "Terravos," I growled.
 
-"Almost certainly." Corvinus was already moving toward the exit. "Come. The Council will need every defender."
+"Almost certainly." Corvinus was already moving. "Come. The Council will need every defender."
 
-We emerged onto the Grand Promenade to find chaos. Supernatural beings were running toward the northern districts, while others fled in the opposite direction. In the distance, flashes of light—combat magic lighting up Nocturne's eternal twilight.
+We emerged onto the Grand Promenade. Chaos. Supernatural beings running toward northern districts. Others fled in opposite direction. In the distance, flashes of light—combat magic lighting up Nocturne's eternal twilight.
 
-*Riven!* Raechelle's voice exploded through our bond, tight with urgency. *Northern border, sector seven. They're breaking through. Earth elementals and what looks like corrupted werewolves. I'm helping with the defensive lines.*
+*Riven!* Raechelle's voice exploded through our bond. Tight with urgency. *Northern border, sector seven. They're breaking through. Earth elementals and corrupted werewolves. I'm helping with defensive lines.*
 
 *I'm coming. Hold position.* I turned to Corvinus. "My familiar is at the breach."
 
-"Then go." He gestured sharply. "Use what I've taught you. But remember—precision over power. A scalpel cuts deeper than a hammer."
+"Then go." He gestured sharply. "Use what I've taught you. But remember—precision over power. Scalpel cuts deeper than hammer."
 
 I ran.
 
-Using my enhanced blood manipulation to push my physical abilities beyond human limits, I covered the distance to the northern border in minutes. What I found a nightmare.
+Using enhanced blood manipulation. Pushed my physical abilities beyond human limits. Covered the distance in minutes. What I found—
 
-The defensive barrier that protected Nocturne—ancient wards maintained by the Council for centuries—had been breached in three places. Massive earth elementals, each the size of a building, were forcing their way through the gaps. Behind them came werewolves, but wrong—their fur was mottled gray and black, their eyes glowing with sickly green light, and their movements were jerky and unnatural.
+Nightmare.
+
+The defensive barrier that protected Nocturne—ancient wards maintained by Council for centuries—was breached in three places. Massive earth elementals. Each the size of a building. Forcing their way through gaps. Behind them came werewolves, but wrong—fur mottled gray and black. Eyes glowing with sickly green light. Movements jerky. Unnatural.
 
 Corrupted. Twisted by dark magic into mindless weapons.
 
-The defenders were fighting valiantly. I spotted Viktor leading a pack of Ironclad werewolves, tearing into the corrupted wolves with savage efficiency. Lysandra stood with a group of Blackwood witches, throwing combat spells that cracked against the elementals' stone hides.
+Defenders were fighting. Viktor leading pack of Ironclad werewolves. Tearing into corrupted wolves with savage efficiency. Lysandra stood with group of Blackwood witches. Throwing combat spells that cracked against elementals' stone hides.
 
-And there was Raechelle, in her full panther form, her sleek black body darting between enemies, harassing and distracting, keeping corrupted wolves away from the more vulnerable spellcasters.
+And there—Raechelle. In her full panther form. Sleek black body darting between enemies. Harassing. Distracting. Keeping corrupted wolves away from more vulnerable spellcasters.
 
-*Sir!* She spotted me immediately. *The elementals are the key. They're channeling power from somewhere beyond Nocturne, keeping the breaches open. If we can disrupt them—*
+*Sir!* She spotted me immediately. *The elementals are the key. They're channeling power from beyond Nocturne. Keeping breaches open. If we can disrupt them—*
 
-"I understand." I reached out with my Blood Sight, looking past the obvious threats to the magical structure underneath. And there—threads of power flowing through the elementals, connecting them to distant sources. Terravos's magic, feeding his attack from afar.
+"I understand." I reached out with Blood Sight. Looking past obvious threats to magical structure underneath. And there—threads of power flowing through elementals. Connecting them to distant sources. Terravos's magic. Feeding his attack from afar.
 
 I couldn't cut those threads directly. But I could do something else.
 
-"Corvinus taught me precision," I muttered. "Time to see if I learned the lesson."
+"Corvinus taught me precision," I muttered. "Time to see if I learned."
 
-I focused on the nearest earth elemental, letting my Blood Sight penetrate its rocky exterior. These creatures weren't truly alive—they were animated earth given form by magic. But that magic had to flow like blood through their bodies, following channels and patterns.
+I focused on nearest earth elemental. Let my Blood Sight penetrate its rocky exterior. These creatures weren't truly alive—animated earth given form by magic. But that magic had to flow like blood through their bodies. Following channels. Patterns.
 
 What if I disrupted those patterns?
 
-I reached out with my power, not trying to control the elemental directly but instead touching the magic that animated it. I felt the structure—complex, ancient, foreign. Terravos's work, centuries of earth magic woven into something that should have been indestructible.
+I reached out with my power. Not trying to control the elemental directly but touching the magic that animated it. I felt the structure—complex. Ancient. Foreign. Terravos's work. Centuries of earth magic woven into something that should have been indestructible.
 
-But I was a Blood Archon. And blood magic was older than earth, more fundamental than stone.
+But I was Blood Archon. And blood magic was older than earth. More fundamental than stone.
 
-I spoke to the power flowing through the elemental, using the techniques Corvinus had drilled into me. Not commanding, but suggesting. Not forcing, but persuading. I reminded the magic what it had been before Terravos corrupted it—pure earth essence, neutral and natural.
+I spoke to power flowing through the elemental. Using techniques Corvinus had drilled into me. Not commanding, but suggesting. Not forcing, but persuading. I reminded the magic what it was before Terravos corrupted it—pure earth essence. Neutral. Natural.
 
-The elemental shuddered. Its movements became sluggish, uncertain. The sickly green light in its eyes flickered.
+The elemental shuddered. Movements became sluggish. Uncertain. The sickly green light in its eyes flickered.
 
-"That's it," I whispered. "Remember what you were. Let go of the corruption."
+"That's it," I whispered. "Remember what you were. Let go."
 
-With a sound like a mountain sighing, the elemental collapsed. Its form held together for a moment, then crumbled into ordinary stone and earth.
+With a sound like a mountain sighing, the elemental collapsed. Form held together for moment. Then crumbled into ordinary stone and earth.
 
 One down. Two to go.
 
-But the effort had cost me. My legs shook, and I could taste copper in my mouth. This level of precision was exhausting, far more draining than simply unleashing raw power.
+But the effort had cost me. Legs shook. Copper taste in my mouth. This level of precision was exhausting. Far more draining than simply unleashing raw power.
 
 *Sir, behind you!*
 
-I spun to find three corrupted werewolves charging at me, their jaws frothing with toxic saliva. I didn't have time for precision now—only survival.
+I spun. Three corrupted werewolves charging at me. Jaws frothing with toxic saliva. Didn't have time for precision now—only survival.
 
-My power lashed out instinctively, seizing their blood. I could have stopped their hearts. Could have made them collapse in agony. But I remembered Viktor, remembered that beneath the corruption, these might have been people.
+My power lashed out instinctively. Seizing their blood. I could have stopped their hearts. Could have made them collapse in agony. But I remembered Viktor. Remembered beneath the corruption, these might be people.
 
-Instead, I flooded their systems with my own blood magic, forcing the corruption out. It was brutal, painful for them, but not lethal. They collapsed mid-charge, whimpering and shaking as the dark magic burned away.
+Instead, I flooded their systems with my own blood magic. Forcing the corruption out. Brutal. Painful for them. But not lethal. They collapsed mid-charge. Whimpering. Shaking as the dark magic burned away.
 
-"Hold them!" I shouted to the nearest defenders. "They're cleansed but disoriented. Restrain them before they hurt themselves."
+"Hold them!" I shouted to nearest defenders. "They're cleansed but disoriented. Restrain them before they hurt themselves."
 
-Viktor appeared at my side, blood splattered across his face and bare chest. "You're purging the corruption? That's insane. Do you know how much power that takes?"
+Viktor appeared at my side. Blood splattered across his face and bare chest. "You're purging the corruption? That's insane. Do you know how much power that takes?"
 
-"More than I have for long." I was already moving toward the second elemental. "Cover me. I need to drop these things before they destroy the defensive wards completely."
+"More than I have for long." Already moving toward second elemental. "Cover me. I need to drop these things before they destroy the defensive wards completely."
 
-"On it." Viktor howled, and his pack responded, forming a protective circle around me.
+"On it." Viktor howled. His pack responded. Forming protective circle around me.
 
-I reached out to the second elemental, repeating the process. This one was stronger, its connection to Terravos's power more firmly established. I had to push harder, dig deeper, spend more of myself.
+I reached out to second elemental. Repeated the process. This one was stronger. Its connection to Terravos's power more firmly established. Had to push harder. Dig deeper. Spend more of myself.
 
-But I did it. The elemental fell, crumbling to dust.
+But I did it. The elemental fell. Crumbling to dust.
 
-The third elemental, sensing the threat I represented, turned its massive bulk toward me. Intelligence flickered in its eyes—Terravos wasn't just animating these things, he was controlling them directly.
+The third elemental sensed the threat I represented. Turned its massive bulk toward me. Intelligence flickered in its eyes—Terravos wasn't just animating these things. He was controlling them directly.
 
-"There you are," I said. grimly. "Let's talk, Earth Archon."
+"There you are," I said grimly. "Let's talk, Earth Archon."
 
-I reached out, not to the elemental but through it, following the threads of power back to their source. It was risky—opening myself to Terravos's magic could let him strike back at me. But I needed him to see what he was facing.
+I reached out. Not to elemental but through it. Following threads of power back to their source. Risky—opening myself to Terravos's magic could let him strike back at me. But I needed him to see what he was facing.
 
-For a moment, I touched the Earth Archon's consciousness. Ancient, implacable, furious. He'd been alive for millennia, had shaped mountains and commanded continents. And he hated me with a passion that transcended reason.
+For a moment, I touched the Earth Archon's consciousness. Ancient. Implacable. Furious. He'd been alive for millennia. Had shaped mountains. Commanded continents. And he hated me with passion that transcended reason.
 
 *You killed my daughter,* his voice thundered through the connection. *You Blood Archons murdered her in the last great war. And now you dare to refuse your duty? You will serve as Balance, or you will die. There is no third option.*
 
@@ -5197,11 +5199,11 @@ For a moment, I touched the Earth Archon's consciousness. Ancient, implacable, f
 
 *You bear the blood. That is crime enough.*
 
-The elemental surged toward me, moving with terrifying speed. I tried disrupt it like the others, but Terravos was fighting me now, pouring more power into the creature, reinforcing its corruption faster than I could cleanse it.
+The elemental surged toward me. Moving with terrifying speed. I tried to disrupt it like the others, but Terravos was fighting me now. Pouring more power into creature. Reinforcing its corruption faster than I could cleanse it.
 
-I was going to have to do this the hard way.
+I would have to do this the hard way.
 
-I gathered my power and struck—not at the elemental's form but at the threads connecting it to Terravos. I couldn't cut them, but I could overload them. I poured my own blood magic into the connection, forcing it wider, making it carry more power than it was designed to handle.
+I gathered my power and struck—not at elemental's form but at threads connecting it to Terravos. I couldn't cut them, but I could overload them. I poured my own blood magic into connection, forcing it wider, making it carry more power than it was designed to handle.
 
 *Clever boy,* Terravos snarled. *But not clever enough.*
 
@@ -5217,13 +5219,13 @@ But if I let go, the elemental would destroy the defensive wards. Would tear int
 
 I couldn't allow that.
 
-Instead of letting go, I pulled harder. I opened myself completely to the flow of magic, became a conduit between Terravos's power and the elemental. And in that moment of total openness, I did something insane.
+Instead of letting go, I pulled harder. I opened myself completely to flow of magic, became a conduit between Terravos's power and the elemental. And in that moment of total openness, I did something insane.
 
 I merged with the elemental's corruption, dove into it, surrounded it with my own essence. And then I began purge myself, using my blood magic to burn away the foreign power, treating it like a poison in my own system.
 
 It worked. But the cost was staggering.
 
-The elemental's form began crumble, its connection to Terravos severing as I destroyed the corruption from the inside. But in destroying it, I was destroying pieces of myself—burning through my life force like fuel.
+The elemental's form began crumble, its connection to Terravos severing as I destroyed the corruption from inside. But in destroying it, I was destroying pieces of myself—burning through my life force like fuel.
 
 *Stop!* Raechelle was crying now, her panic flooding through our bond. *Sir, you're dying! Stop, please!*
 
@@ -5265,7 +5267,7 @@ I opened my eyes to find Raechelle staring down at me, her face streaked with te
 
 "Can't promise that." I managed a weak smile. "But I promise I'll try not to die in the process."
 
-She laughed, the sound half-sob, and kissed me hard enough to hurt. I kissed her back, drawing strength not just from our bond but from the simple fact that we were alive, together, having survived another impossible battle.
+She laughed, the sound half-sob, and kissed me hard enough to hurt. I kissed her back, drawing strength not just from our bond but from simple fact that we were alive, together, having survived another impossible battle.
 
 Around us, the defenders were securing the area. The corrupted werewolves I'd cleansed were being tended to by healers. The casualties... I didn't want to count the casualties.
 
@@ -5283,17 +5285,17 @@ Before I could respond, Lady Seraphina appeared, her robes singed and bloodied b
 
 "Report," she commanded.
 
-Viktor gave her a concise summary of the battle. When he reached the part about me purging the elementals, her gaze sharpened.
+Viktor gave her a concise summary of battle. When he reached the part about me purging the elementals, her gaze sharpened.
 
 "You merged with the corruption? Deliberately?" Her tone was unreadable. "That's... unprecedented. And dangerous."
 
 "It worked," I said. simply.
 
-"This time." She studied me for a long moment. "Come to the Council Hall tomorrow night. All defenders will be honored, but I need to speak with you specifically." Her gaze shifted to Raechelle. "Both of you."
+"This time." She studied me for a long moment. "Come to Council Hall tomorrow night. All defenders will be honored, but I need to speak with you specifically." Her gaze shifted to Raechelle. "Both of you."
 
 She swept away, already organizing the cleanup efforts.
 
-Lysandra approached next, her usual confidence tempered by something that looked like respect. "My mother will want to speak with you about what you did. That kind of purification magic... it's not something even the Blackwood coven can reliably perform."
+Lysandra approached next, her usual confidence tempered by something that looked like respect. "My mother will want to speak with you about what you did. That purification magic... it's not something even the Blackwood coven can reliably perform."
 
 "Tell her I'm willing to share what I've learned." I was so tired my bones ached. "But right now, I need to rest."
 
@@ -5303,9 +5305,9 @@ As the various groups dispersed to tend their wounded and secure the perimeter, 
 
 "How many did we lose?" I asked quietly.
 
-Raechelle was silent for a moment. "Five confirmed dead. Dozens wounded. Could have been much worse without your intervention."
+Raechelle was silent for a moment. "Five confirmed dead. Dozens wounded. Could were much worse without your intervention."
 
-Five people who woke up this morning not knowing it would be their last day. Five families who would grieve. Five lives ended because Terravos wanted to hurt me.
+Five people who woke up this morning not knowing it was their last day. Five families who would grieve. Five lives ended because Terravos wanted to hurt me.
 
 "This is my fault," I said.
 
@@ -5325,7 +5327,7 @@ She was right. I knew she was right. But the weight of those deaths still sat he
 
 We walked home through a Nocturne that felt different now—no longer a safe haven but a city under siege. Supernatural beings eyed each other with new suspicion, wondering if more corruption lurked unseen. The attack had shattered the illusion of perfect safety.
 
-But I also saw something else. As we passed, defenders nodded to me with respect. Citizens who'd hidden during the attack emerged to offer thanks. A young witch pressed a healing draught into my hands with tears in her eyes, saying her sister had been among those I'd saved.
+But I also saw something else. As we passed, defenders nodded to me with respect. Citizens who'd hidden during the attack emerged to offer thanks. A young witch pressed a healing draught into my hands with tears in her eyes, saying her sister was among those I'd saved.
 
 I was becoming what I'd never imagined—a symbol. A protector. A leader.
 
@@ -5353,15 +5355,15 @@ I pulled her close despite my injuries, feeling her shake against me. "I'm here.
 
 "Twice?"
 
-She pulled back slightly, confusion crossing her tear-streaked face. "I... I don't know why I said. I meant..." She shook her head helplessly. "I just meant I can't lose you. Period. The thought of it, Sir, it's like there's this abyss inside me, this hole that opens up, and it feels so old and so deep that I think I'd fall forever if you weren't here to anchor me."
+She pulled back , confusion crossing her tear-streaked face. "I... I don't know why I said. I meant..." She shook her head helplessly. "I just meant I can't lose you. Period. The thought of it, Sir, it's like there's this abyss inside me, this hole that opens up, and it feels so old and so deep I think I'd fall forever if you weren't here to anchor me."
 
 The grief in her voice seemed disproportionate to our relatively short time together. We'd bonded weeks ago, loved each other intensely, but her despair felt like something deeper. Something rooted in loss that predated our relationship.
 
 "You've lost someone before," I said. gently. "Someone important."
 
-"Maybe. I don't know." She was crying freely now, not bothering to hide it. "Sometimes I feel like there's this enormous weight of grief inside me, Sir, and I don't know where it comes from. Like I'm mourning something I can't remember. And when you almost died today, it all came flooding back—this terror that I've felt before, this devastating loss that I've survived before, and I..." She choked on the words. "I don't want to survive losing you. I don't think I could."
+"Maybe. I don't know." She was crying freely now, not bothering to hide it. "Sometimes I feel like there's this enormous weight of grief inside me, Sir, and I don't know where it comes from. Like I'm mourning something I can't remember. And when you almost died today, it all came flooding back—this terror that I've felt before, this devastating loss that I've survived before, and I..." She choked on words. "I don't want to survive losing you. I don't think I could."
 
-I held her tighter, my mind racing. Her forgotten memories. Her disproportionate grief. The sense that she'd experienced this kind of loss before.
+I held her tighter, my mind racing. Her forgotten memories. Her disproportionate grief. The sense that she'd experienced this loss before.
 
 All of it pointing to something we'd glimpsed in the Archives—a past she couldn't remember, connected to a Blood Archon who'd died three centuries ago.
 
@@ -5379,7 +5381,7 @@ She kissed me then, desperate and fierce, tasting of tears and blood and love so
 
 "Don't apologize. Ever." I brushed tears from her cheeks. "You're allowed to be afraid. Allowed to grieve. Allowed to be anything except alone. I'm here, and I'm not going anywhere."
 
-She managed a shaky smile, then returned to tending my wounds with more composure, though her hands still shook slightly. I watched her work, my mind still turning over her words.
+She managed a shaky smile, then returned to tending my wounds with more composure, though her hands still shook . I watched her work, my mind still turning over her words.
 
 *I can't survive it twice.*
 
@@ -5397,7 +5399,7 @@ After she'd finished patching me up, I made a decision.
 
 "Then I build a team. Viktor, Lysandra, maybe others. A strike force capable of hitting Terravos where he's vulnerable."
 
-"That's... actually a good plan." She paused in her ministrations. "But it's also suicide if you rush it. You need more training from Corvinus. You need to fully master your Blood Archon abilities. And you need allies powerful enough to stand against an Archon."
+"That's... a good plan." She paused in her ministrations. "But it's also suicide if you rush it. You need more training from Corvinus. You need to fully master your Blood Archon abilities. And you need allies powerful enough to stand against an Archon."
 
 "How long will that take?"
 
@@ -5434,11 +5436,11 @@ The Council convened two nights after the attack, in the great chamber beneath t
 
 I stood with Raechelle at my side, still healing but refusing to show weakness. Lady Seraphina had given me a place of honor near the Council's raised dais, acknowledging my role in defending the city.
 
-The debate was fierce from the start.
+The debate was fierce from start.
 
 "We must negotiate," insisted Councilor Thaddeus, an ancient vampire who controlled much of Nocturne's merchant districts. "Send emissaries to Terravos, find out what he truly wants. Perhaps a compromise—"
 
-"He wants Riven dead or enslaved," Viktor interrupted, his voice harsh. "I was there at the border. Those elementals weren't a negotiating tactic—they were weapons of war. Terravos has chosen his path."
+"He wants Riven dead or enslaved," Viktor interrupted, his voice harsh. "I was there at border. Those elementals weren't a negotiating tactic—they were weapons of war. Terravos has chosen his path."
 
 "Then we expel the Blood Archon," suggested Councilor Meredith, a witch whose coven specialized in divination. "If Riven leaves Nocturne, Terravos has no reason to attack us."
 
@@ -5464,7 +5466,7 @@ Murmurs of agreement rippled through the crowd. I let them build for a moment be
 
 I looked around the chamber, meeting eyes, letting them see my certainty.
 
-"If I leave, he doesn't stop. He simply refocuses his anger on the next target. The Council that harbored me. The allies who helped me. The city that refused to hand me over. His rage doesn't end with my death—it just finds new targets."
+"If I leave, he doesn't stop. He simply refocuses his anger on next target. The Council that harbored me. The allies who helped me. The city that refused to hand me over. His rage doesn't end with my death—it just finds new targets."
 
 Silence now, everyone listening.
 
@@ -5472,7 +5474,7 @@ Silence now, everyone listening.
 
 "That's madness," Councilor Thaddeus said flatly. "An Archon in their own domain is nearly invincible. You'd be leading our best fighters to their deaths."
 
-"I'd be leading volunteers," I corrected. "People who understand the risk and choose to take it anyway. And I wouldn't be attacking Terravos directly—not yet. I'm not that foolish. But his infrastructure, his supply lines, his corrupted warriors—those can be disrupted. Weakened. Made to fear us instead of the other way around."
+"I'd be leading volunteers," I corrected. "People who understand the risk and choose to take it anyway. And I wouldn't be attacking Terravos directly—not yet. I'm not that foolish. But his infrastructure, his supply lines, his corrupted warriors—those can be disrupted. Weakened. Made to fear us instead of other way around."
 
 Viktor stood, his massive frame commanding attention. "The Ironclad pack volunteers. We've already lost warriors to Terravos's corruption. We want revenge."
 
@@ -5480,9 +5482,9 @@ Lysandra rose next. "The Blackwood coven will support this action. My mother agr
 
 One by one, others stood. A vampire lord whose nephew had died in the border attack. A fae representative whose people had suffered under earth magic. Representatives from smaller factions who saw in me a chance to strike back against an enemy they'd feared for centuries.
 
-By the time the volunteers finished declaring themselves, nearly a third of the Council stood.
+By the time the volunteers finished declaring themselves, nearly a third of Council stood.
 
-Lady Seraphina surveyed the chamber with an expression that might have been satisfaction.
+Lady Seraphina surveyed the chamber with an expression that might were satisfaction.
 
 "The Council will vote," she announced. "All in favor of authorizing an offensive strike force under Riven Sixxx's leadership, signify."
 
@@ -5494,21 +5496,21 @@ As the Council adjourned, Seraphina gestured for me to follow her to a private c
 
 "War," I said. simply.
 
-"Yes. But also opportunity." She poured three glasses of wine from a crystal decanter, handing one to me and one to Raechelle. "For the first time in centuries, the supernatural community is uniting behind a leader who isn't bound by old allegiances or ancient grudges. You're new, Riven. That makes you dangerous to the established order, but it also makes you their best hope for survival."
+"Yes. But also opportunity." She poured three glasses of wine from a crystal decanter, handing one to me and one to Raechelle. "For the first time in centuries, the supernatural community is uniting behind a leader who isn't bound by old allegiances or ancient grudges. You're new, Riven. That makes you dangerous to established order, but it also makes you their best hope for survival."
 
 "No pressure," I muttered, taking a drink.
 
 Seraphina smiled. "You've handled pressure well so far. But this next phase will test you in ways the border skirmish didn't. You'll be responsible for the lives of every fighter in your strike force. Every casualty will be your burden to bear."
 
-"I know." The weight of those five deaths from the border attack still sat heavy on my shoulders. "But I can't just hide and hope Terravos gives up. That's not who I am."
+"I know." The weight of those five deaths from border attack still sat heavy on my shoulders. "But I can't just hide and hope Terravos gives up. That's not who I am."
 
-"No, it's not." Seraphina studied me over her wine glass. "Your mother would be proud of you, I think. And perhaps a little terrified. You're choosing the path she tried protect you from."
+"No, it's not." Seraphina studied me over her wine glass. "Your mother was proud of you, I think. And perhaps terrified. You're choosing the path she tried protect you from."
 
 "I'm choosing my own path," I corrected. "One that happens to overlap with what she feared. But I'm doing it on my terms, for my reasons."
 
 "Good." She set down her glass. "Then let me give you some practical advice. First, train your strike force intensively. They need to function as one unit, anticipating each other, covering weaknesses. Second, gather intelligence before you strike. Terravos's territory is vast—you need to know where to hit for maximum impact. Third, establish clear rules of engagement. You're not trying to become the monster you're fighting."
 
-"Understood." I hesitated, then asked the question that had been nagging at me. "Why are you supporting this? You could have influenced the Council vote against me."
+"Understood." I hesitated, then asked the question that was nagging at me. "Why are you supporting this? You could have influenced the Council vote against me."
 
 "Because doing nothing is death," she said. bluntly. "Terravos will eventually wear us down with constant attacks. Better to fight back now, while we still have the strength and will to do so." She paused. "And because I believe in you, Riven. You're not perfect, but you're honorable. That's rarer than you might think among the powerful."
 
@@ -5520,9 +5522,9 @@ Days were spent training with Corvinus, mastering advanced blood techniques. He 
 
 "You have the strength of a Blood Archon," he said after one particularly brutal session. "Now you need the finesse. The difference between a warrior and a master is knowing exactly how much force to apply."
 
-Evenings were dedicated to the strike force. Viktor brought his best fighters—werewolves who could track, fight, and endure incredible punishment. Lysandra contributed combat mages from the Blackwood coven, specialists in offensive and defensive magic. The vampire contingent included shadow walkers who could scout undetected.
+Evenings were dedicated to strike force. Viktor brought his best fighters—werewolves who could track, fight, and endure incredible punishment. Lysandra contributed combat mages from Blackwood coven, specialists in offensive and defensive magic. The vampire contingent included shadow walkers who could scout undetected.
 
-And me and Raechelle, at the center of it all, learning to coordinate this disparate group into a cohesive unit.
+And me and Raechelle, at center of it all, learning to coordinate this disparate group into a cohesive unit.
 
 We drilled them on communication, on supporting each other's strengths, on retreat protocols. I made it clear that heroic last stands weren't the goal—surgical strikes and survival were what mattered.
 
@@ -5534,7 +5536,7 @@ One night, as we lay tangled together in the aftermath of passion, she asked the
 
 "What happens after we win, Sir?"
 
-"After?" I stroked her hair absently. "We rebuild. Help Nocturne recover. Maybe travel, see parts of the supernatural world that aren't trying to kill us."
+"After?" I stroked her hair absently. "We rebuild. Help Nocturne recover. Maybe travel, see parts of supernatural world that aren't trying to kill us."
 
 "I meant us specifically." She propped herself up on one elbow, looking down at me with those amber eyes. "We're bonded for life. But what does that life look like? Do we stay in Nocturne? Do we build a family? Do we even want those things?"
 
@@ -5578,7 +5580,7 @@ Three days before the strike force's first mission, Magistrate Corvinus called m
 
 "Because you're going into combat against an Archon. The rules that govern normal supernatural warfare don't apply. You need every advantage you can get, even the ones we'd prefer remained buried."
 
-He led me to a warded room deep beneath the Academy, where ancient blood magic had been worked into the stones.
+He led me to a warded room deep beneath the Academy, where ancient blood magic was worked into stones.
 
 "This is Blood Dominion," he explained. "The ultimate expression of Blood Archon power. Within an area you define, you become absolute. Life and death answer to your will. Blood obeys your every thought. No one can harm you, because you control their essence."
 
@@ -5654,7 +5656,7 @@ After everyone left, Raechelle and I were alone. She'd been quiet throughout the
 
 "It is simple. The execution is just complicated." I grinned. "But we're good at complicated."
 
-She laughed despite her fear, and I felt some of the tension leave her body.
+She laughed despite her fear, and I felt some of tension leave her body.
 
 "Come on," I said, leading her toward the bedroom. "Let's get some rest. Tomorrow, we change the game."
 
@@ -5662,7 +5664,7 @@ She laughed despite her fear, and I felt some of the tension leave her body.
 
 "We've been at war since Terravos killed my parents. Tomorrow, we just stop pretending otherwise."
 
-We made love that night with a desperate intensity, clinging to each other like lifelines. Every touch was a promise, every kiss a prayer. We fell asleep tangled together, finding peace in our bond even as war loomed on the horizon.
+We made love that night with a desperate intensity, clinging to each other like lifelines. Every touch was a promise, every kiss a prayer. We fell asleep tangled together, finding peace in our bond even as war loomed on horizon.
 
 Tomorrow would bring battle, blood, and possibly death.
 
@@ -5683,7 +5685,7 @@ And that was enough.
 
 The portal opened at midnight, exactly as planned.
 
-Not the grand, ornate portal that connected Nocturne to the outside world, but a smaller, temporary gateway created by the combined efforts of Lysandra's coven. It flickered with unstable energy, barely holding its form as our strike team gathered before it.
+Not the grand, ornate portal that connected Nocturne to outside world, but a smaller, temporary gateway created by the combined efforts of Lysandra's coven. It flickered with unstable energy, barely holding its form as our strike team gathered before it.
 
 "Once you're through, you'll have six hours," Morgana Blackwood warned, her weathered hands maintaining the spell. "After that, the portal collapses and you'll have to find your own way home. I cannot hold it longer without alerting every magic user within a hundred miles."
 
@@ -5701,7 +5703,7 @@ And Raechelle, at my side as always, her amber eyes reflecting the portal's ligh
 
 "We adapt. Survive. Complete the mission if possible, but prioritize getting everyone home alive." I met each person's eyes. "I'm not losing anyone tonight."
 
-Lady Seraphina appeared from the shadows, her presence commanding immediate attention. "The Council has authorized this action, but I want to be clear—once you cross into Terravos's territory, you're beyond our protection. If you're captured, we cannot openly retrieve you without declaring total war."
+Lady Seraphina appeared from shadows, her presence commanding immediate attention. "The Council has authorized this action, but I want to be clear—once you cross into Terravos's territory, you're beyond our protection. If you're captured, we cannot openly retrieve you without declaring total war."
 
 "Understood," I said.
 
@@ -5711,7 +5713,7 @@ She nodded, then did something unexpected. She approached me and placed a small 
 
 "Thank you." I tucked the crystal into a secured pocket.
 
-Seraphina stepped back, and I turned to the portal. Beyond the shimmering surface, I sensed the difference—wilder magic, harsher energy, the signature of earth and stone rather than Nocturne's balanced darkness.
+Seraphina stepped back, and I turned to portal. Beyond the shimmering surface, I sensed the difference—wilder magic, harsher energy, the signature of earth and stone rather than Nocturne's balanced darkness.
 
 "Move out," I commanded.
 
@@ -5727,7 +5729,7 @@ We'd emerged in a canyon, tall stone walls rising on either side. The air tasted
 
 The team moved with practiced efficiency. Within minutes, we'd secured our landing zone and the scouts were reporting back.
 
-"Supply depot is two miles northwest," one of the shadow walkers reported, a vampire named Marcus whose ability to merge with darkness made him nearly undetectable. "Heavily guarded—at least twenty corrupted warriors and four stone guardians. And something else... something big in the central building."
+"Supply depot is two miles northwest," one of shadow walkers reported, a vampire named Marcus whose ability to merge with darkness made him nearly undetectable. "Heavily guarded—at least twenty corrupted warriors and four stone guardians. And something else... something big in the central building."
 
 "Define 'big,'" I said.
 
@@ -5737,7 +5739,7 @@ I exchanged glances with Raechelle. We'd expected guards, but a lieutenant-level
 
 "Can we bypass the main force?" I asked. "Hit a secondary target?"
 
-"There is a weapons cache on the eastern perimeter," another scout reported. "Lighter security, but also less valuable."
+"There is a weapons cache on eastern perimeter," another scout reported. "Lighter security, but also less valuable."
 
 Viktor stepped forward. "We came here to hurt Terravos. The main depot does that. The cache is just a consolation prize."
 
@@ -5751,11 +5753,11 @@ They were both right. I weighed the options, feeling the weight of command. Ever
 
 She was right. This wasn't about proving something—it was about damaging Terravos's capacity to wage war.
 
-"We split up," I decided. "Viktor, take half the pack and ten fighters to the cache. Hit it hard and fast. The rest of us will draw attention at the main depot. When you hear our attack, you strike. We'll keep them focused on us while you accomplish your objective."
+"We split up," I decided. "Viktor, take half the pack and ten fighters to cache. Hit it hard and fast. The rest of us will draw attention at main depot. When you hear our attack, you strike. We'll keep them focused on us while you accomplish your objective."
 
 Viktor grinned, all teeth. "I like it. Divide their attention, multiply our impact."
 
-"Exactly. And Viktor?" I waited until he met my eyes. "If things go wrong at the depot, you complete your mission and get everyone home. Don't try to rescue us. That's an order."
+"Exactly. And Viktor?" I waited until he met my eyes. "If things go wrong at depot, you complete your mission and get everyone home. Don't try to rescue us. That's an order."
 
 His expression sobered. "Understood."
 
@@ -5763,9 +5765,9 @@ We divided the team, synchronized our watches, and moved out.
 
 ---
 
-The approach to the supply depot took an hour of careful movement through hostile terrain. Every rock could hide a sensor, every shadow might conceal a guard. My Blood Sight was active constantly, tracking life forces ahead of and around us.
+The approach to supply depot took an hour of careful movement through hostile terrain. Every rock could hide a sensor, every shadow might conceal a guard. My Blood Sight was active constantly, tracking life forces ahead of and around us.
 
-The depot itself was built into the canyon wall—a massive complex of stone buildings that seemed grown from the earth rather than constructed. Corrupted warriors patrolled in precise patterns, their movements too regular to be natural. They were being controlled directly, puppets on invisible strings.
+The depot itself was built into canyon wall—a massive complex of stone buildings that seemed grown from earth rather than constructed. Corrupted warriors patrolled in precise patterns, their movements too regular to be natural. They were being controlled directly, puppets on invisible strings.
 
 "Terravos is maintaining active control," I whispered to Raechelle. "That means he's aware of this location, possibly even watching through their eyes."
 
@@ -5781,7 +5783,7 @@ I checked my watch. Five minutes until Viktor's team should be in position.
 
 "Raechelle and I will take point. When the distraction hits, we go straight for that lieutenant. If we can take it down, the corrupted warriors will lose coordination."
 
-"And if the lieutenant is too strong?" one of the fighters asked.
+"And if the lieutenant is too strong?" one of fighters asked.
 
 "Then we adapt. But I didn't awaken my full Blood Archon powers just to run from Terravos's servants." I let confidence I mostly felt show in my voice. "Trust me. Trust each other. And most importantly, stay alive."
 
@@ -5789,13 +5791,13 @@ The minutes crawled by. Then, in the distance, I heard it—a massive explosion,
 
 "Go!" I shouted to Lysandra.
 
-She unleashed a spell that lit up the night like a miniature sun. A pillar of fire erupted at the depot's northern perimeter, followed by a series of spectacular explosions as her prepared charges detonated.
+She unleashed a spell that lit up the night like a miniature sun. A pillar of fire erupted at depot's northern perimeter, followed by a series of spectacular explosions as her prepared charges detonated.
 
-The corrupted warriors immediately converged on the disturbance. Perfect.
+The corrupted warriors immediately converged on disturbance. Perfect.
 
 We charged the southern entrance, moving as one coordinated unit. My blood magic reached out ahead of me, sensing the few guards remaining, disrupting their corrupted forms before they could raise an alarm.
 
-The door was solid stone, sealed with earth magic. But I'd learned from Corvinus how to work with precision rather than force. I touched the door and spoke to the magic binding it, persuading rather than commanding. The stone grudgingly shifted, creating an opening.
+The door was solid stone, sealed with earth magic. But I'd learned from Corvinus how to work with precision rather than force. I touched the door and spoke to magic binding it, persuading rather than commanding. The stone grudgingly shifted, creating an opening.
 
 We poured inside.
 
@@ -5803,15 +5805,15 @@ The interior was a maze of corridors carved from living rock, lit by luminescent
 
 "Burn it all," I ordered.
 
-Lysandra's witches began their work, placing incendiary charges with practiced efficiency. The shadow walkers disappeared into the depths, seeking intelligence.
+Lysandra's witches began their work, placing incendiary charges with practiced efficiency. The shadow walkers disappeared into depths, seeking intelligence.
 
-And I felt it—a massive presence awakening in the heart of the complex. The lieutenant, responding to our intrusion.
+And I felt it—a massive presence awakening in the heart of complex. The lieutenant, responding to our intrusion.
 
 *It's coming,* Raechelle warned.
 
-"Everyone fall back to the entry point!" I commanded. "Prepare for combat!"
+"Everyone fall back to entry point!" I commanded. "Prepare for combat!"
 
-The ground shook. Dust fell from the ceiling. And then it appeared—a creature of living stone and malice, easily fifteen feet tall, with eyes that glowed like molten lava. Its form was humanoid but massive, each step leaving cracks in the floor.
+The ground shook. Dust fell from ceiling. And then it appeared—a creature of living stone and malice, easily fifteen feet tall, with eyes that glowed like molten lava. Its form was humanoid but massive, each step leaving cracks in the floor.
 
 "Blood Archon," it spoke with a voice like grinding boulders. "Lord Terravos sends his regards."
 
@@ -5821,21 +5823,21 @@ It attacked with terrifying speed for something so large. A massive fist crashed
 
 The strike team responded beautifully. Werewolves harried its legs, too fast for the stone giant to catch. Witches threw binding spells that slowed its movements. Vampire fighters struck at joints and weak points.
 
-But nothing seemed to significantly damage it. This wasn't just animated stone—this was a true extension of Terravos's power, reinforced and nearly indestructible.
+But nothing seemed significantly damage it. This wasn't just animated stone—this was a true extension of Terravos's power, reinforced and nearly indestructible.
 
 I reached out with my Blood Sight, looking for the magic that animated it. There—threads of power flowing through the stone like blood through veins. If I could disrupt those...
 
-But the technique I'd used on the elementals at Nocturne's border required time and concentration. Time I didn't have with this monster actively trying to kill us.
+But the technique I'd used on elementals at Nocturne's border required time and concentration. Time I didn't have with this monster actively trying to kill us.
 
 Unless...
 
-"Keep it busy!" I called to the team. "I need thirty seconds!"
+"Keep it busy!" I called to team. "I need thirty seconds!"
 
 *Sir, that's insane,* Raechelle protested.
 
 *Thirty seconds. Keep it off me.*
 
-She shifted to her full panther form and launched herself at the lieutenant's face, claws raking across stone eyes. Viktor coordinated his pack to attack in waves, forcing the creature to defend multiple directions at once.
+She shifted to her full panther form and launched herself at lieutenant's face, claws raking across stone eyes. Viktor coordinated his pack to attack in waves, forcing the creature to defend multiple directions at once.
 
 I closed my eyes and dove deep into my power.
 
@@ -5845,13 +5847,13 @@ I reached out with my consciousness and declared the space around me mine. For f
 
 The power was intoxicating. every living thing in my domain, could sense the magic animating the lieutenant, could command with a thought what would normally take minutes of concentration.
 
-I spoke to the earth magic flowing through the stone creature, and this time, it had no choice but to listen.
+I spoke to earth magic flowing through the stone creature, and this time, it had no choice but to listen.
 
 "Fall," I commanded.
 
 The lieutenant froze mid-swing. Its eyes flickered, confused. Then its form began crumble, the magic sustaining it unraveling under my absolute authority.
 
-"Fall," I repeated, pouring more of myself into the command.
+"Fall," I repeated, pouring more of myself into command.
 
 With a sound like a mountain sighing, the lieutenant collapsed. Its massive form broke apart, becoming nothing more than ordinary stone and rubble.
 
@@ -5861,25 +5863,25 @@ But it had worked.
 
 "Charges are set!" Lysandra called out. "We need to move, now!"
 
-The shadow walkers emerged from the depths, carrying rolled documents and crystal storage devices. "Got what we came for!"
+The shadow walkers emerged from depths, carrying rolled documents and crystal storage devices. "Got what we came for!"
 
 "Everyone out!" I commanded, letting Raechelle support my weight. "Thirty seconds to detonation!"
 
 We ran.
 
-The explosion caught us just as we cleared the entrance, a massive blast of fire and force that consumed the supply depot. The shockwave knocked us all flat, but we were clear of the worst of it.
+The explosion caught us just as we cleared the entrance, a massive blast of fire and force that consumed the supply depot. The shockwave knocked us all flat, but we were clear of worst of it.
 
 I looked back to see flames erupting from multiple points in the complex, the entire structure beginning to collapse. Months of Terravos's preparation, gone in minutes.
 
-"Viktor, status?" I called into the communication crystal.
+"Viktor, status?" I called into communication crystal.
 
 "Cache destroyed, team intact, heading to extraction point," his voice crackled back.
 
 "Copy that. See you there."
 
-We limped back toward the portal, exhausted and battered but victorious. The mission had been riskier than planned, but we'd accomplished our objectives.
+We limped back toward the portal, exhausted and battered but victorious. The mission was riskier than planned, but we'd accomplished our objectives.
 
-As we reached the extraction point, I felt it—a surge of massive power in the distance. Terravos himself, responding to the attack. We'd poked the bear, and now it was waking up.
+As we reached the extraction point, I felt it—a surge of massive power in the distance. Terravos himself, responding to attack. We'd poked the bear, and now it was waking up.
 
 "Through the portal, now!" I urged everyone forward.
 
@@ -5897,7 +5899,7 @@ I stepped through the portal, and it collapsed behind us.
 
 ---
 
-We emerged in Nocturne to find Lady Seraphina and half the Council waiting. The medical teams immediately descended on the wounded, while Morgana collapsed from the strain of holding the portal.
+We emerged in Nocturne to find Lady Seraphina and half the Council waiting. The medical teams immediately descended on wounded, while Morgana collapsed from strain of holding the portal.
 
 "Report," Seraphina demanded.
 
@@ -5909,7 +5911,7 @@ We emerged in Nocturne to find Lady Seraphina and half the Council waiting. The 
 
 Relief flashed across her ageless face. "Then it seems your gamble paid off."
 
-"For now." I looked at the intelligence we'd gathered. "But Terravos knows we're not going to wait for him to attack. This changes the game completely."
+"For now." I looked at intelligence we'd gathered. "But Terravos knows we're not going to wait for him to attack. This changes the game completely."
 
 "Indeed it does." She studied me carefully. "You look terrible. How much did this cost you?"
 
@@ -5933,7 +5935,7 @@ The implications were staggering. If Terravos successfully isolated me political
 
 "That's a dangerous game," Viktor warned. "Archons don't trust easily, and their politics make Nocturne's Council look simple."
 
-"Nevertheless, it's necessary." Seraphina made a decision. "I'll reach out through diplomatic channels. See who might be willing to hear our side. Riven, you focus on recovery and preparing for the inevitable counterattack."
+"Nevertheless, it's necessary." Seraphina made a decision. "I'll reach out through diplomatic channels. See who was willing to hear our side. Riven, you focus on recovery and preparing for the inevitable counterattack."
 
 "What about the intelligence on Terravos's weaknesses?" I asked. "Did we learn anything useful?"
 
@@ -5943,15 +5945,15 @@ Marcus, the shadow walker who'd led the scouting, spoke up. "The supply depot wa
 
 "Suicide," Seraphina interrupted. "The Earth Throne is Terravos's seat of power, the heart of his domain. Attacking it would require an army, not a strike team."
 
-"Then we build an army." I looked around at the assembled Council members. "We've proven tonight that we can hurt Terravos. Now we need to do it on a scale that actually matters."
+"Then we build an army." I looked around at assembled Council members. "We've proven tonight that we can hurt Terravos. Now we need to do it on a scale that matters."
 
 The Council chamber fell silent, everyone processing the magnitude of what I was proposing.
 
-Finally, Lady Seraphina smiled grimly. "Then it seems we truly are at war. Very well. The Council will convene tomorrow to discuss military preparations. For tonight, all of you—" she gestured to the strike team, "—have earned rest and celebration. You've struck the first blow. Make sure it counts."
+Finally, Lady Seraphina smiled grimly. "Then it seems we truly are at war. Very well. The Council will convene tomorrow to discuss military preparations. For tonight, all of you—" she gestured to strike team, "—have earned rest and celebration. You've struck the first blow. Make sure it counts."
 
 ---
 
-Back at our townhouse, Raechelle and I collapsed onto the couch, too exhausted to even make it to the bedroom. The adrenaline was wearing off, leaving us shaky and drained.
+Back at our townhouse, Raechelle and I collapsed onto the couch, too exhausted to even make it to bedroom. The adrenaline was wearing off, leaving us shaky and drained.
 
 "That was insane," Raechelle said quietly.
 
@@ -5969,7 +5971,7 @@ Back at our townhouse, Raechelle and I collapsed onto the couch, too exhausted t
 
 "I do." I held her as the reality of what we'd accomplished sank in. We'd taken the fight to an ancient Archon and lived to tell about it. We'd proven that Terravos wasn't invincible.
 
-But we'd also declared open war. There would be no going back now, no possibility of peaceful resolution.
+But we'd also declared open war. There was no going back now, no possibility of peaceful resolution.
 
 The storm was gathering, and we stood at its center.
 
@@ -5988,15 +5990,15 @@ But at least we weren't standing alone.
 
 Terravos's response came three days later, and it was apocalyptic.
 
-I was in the training grounds with Corvinus, reviewing my recovery from the Blood Dominion usage, when the first tremors hit. The ground beneath Nocturne shook—not the gentle earthquakes common to supernatural cities, but violent convulsions that cracked stone and toppled buildings.
+I was in the training grounds with Corvinus, reviewing my recovery from Blood Dominion usage, when the first tremors hit. The ground beneath Nocturne shook—not the gentle earthquakes common to supernatural cities, but violent convulsions that cracked stone and toppled buildings.
 
-"He's attacking the foundations," Corvinus said grimly, his ancient face showing concern for the first time since I'd met him. "Terravos is trying to collapse Nocturne's bedrock. If he succeeds, the entire city will sink into the earth."
+"He's attacking the foundations," Corvinus said grimly, his ancient face showing concern for the first time since I'd met him. "Terravos is trying to collapse Nocturne's bedrock. If he succeeds, the entire city will sink into earth."
 
 *Riven!* Raechelle's panicked voice exploded through our bond. *The barriers are failing! He's got an army at every entrance!*
 
 "Come on!" I raced toward the Council Hall with Corvinus at my side, feeling the city shake around us. Supernatural beings were fleeing their homes, children crying, the usual order of Nocturne dissolving into chaos.
 
-We burst into the Council chamber to find it already full. Every Councilor, every major faction leader, every power player in Nocturne had assembled. And on the viewing screens—magical projections showing the city's perimeter—was a nightmare.
+We burst into Council chamber to find it already full. Every Councilor, every major faction leader, every power player in Nocturne had assembled. And on viewing screens—magical projections showing the city's perimeter—was a nightmare.
 
 Thousands of corrupted warriors surrounded Nocturne. Earth elementals the size of buildings. Stone constructs bristling with weapons. And behind them all, visible even at a distance through his massive presence, was Terravos himself.
 
@@ -6004,7 +6006,7 @@ The Earth Archon had come to war.
 
 "Options," Lady Seraphina demanded, her usual composure cracking under the pressure.
 
-"The barriers will hold for now," Councilor Meridia reported, her hands glowing as she channeled power into the city's defenses. "But he's draining our reserves. Every tremor, every attack, depletes the magic that protects us. We have days, maybe a week before the barriers fail completely."
+"The barriers will hold for now," Councilor Meridia reported, her hands glowing as she channeled power into city's defenses. "But he's draining our reserves. Every tremor, every attack, depletes the magic that protects us. We have days, maybe a week before the barriers fail completely."
 
 "Can we evacuate?" someone asked.
 
@@ -6022,13 +6024,13 @@ Silence greeted that question. Everyone knew the answer.
 
 "Then what do you propose?" Meridia asked.
 
-I looked at the assembled leaders—vampire lords, werewolf alphas, witch matriarchs, and representatives from a dozen other factions. Each one commanded their own forces, their own resources. But they'd never worked together in true military coordination.
+I looked at assembled leaders—vampire lords, werewolf alphas, witch matriarchs, and representatives from a dozen other factions. Each one commanded their own forces, their own resources. But they'd never worked together in true military coordination.
 
 "We unify command," I said. "One leader with the authority to coordinate our defense, make split-second decisions, allocate resources without needing Council approval for every action."
 
 "You're suggesting a military dictatorship," Thaddeus accused.
 
-"I'm suggesting we survive." I met his gaze steadily. "Once Terravos is defeated, power returns to the Council. But in war, we can't afford to debate every tactical decision."
+"I'm suggesting we survive." I met his gaze steadily. "Once Terravos is defeated, power returns to Council. But in war, we can't afford to debate every tactical decision."
 
 "And who would serve as this unified commander?" asked Elder Mara, the Ironclad alpha's mother and a respected voice among the werewolf community.
 
@@ -6036,19 +6038,19 @@ Before I could respond, Viktor spoke up. "Riven Sixxx. He led the strike team su
 
 "A Blood Archon as military dictator?" Thaddeus's voice dripped with sarcasm. "That's asking for tyranny."
 
-"No," a new voice said from the shadows. "That's asking for salvation."
+"No," a new voice said from shadows. "That's asking for salvation."
 
-Everyone turned as a figure materialized in the center of the Council chamber. She was tall and ethereal, her form seeming to shift between solid and mist. Her eyes were silver, reflecting light like mirrors, and power radiated from her in waves that made even the ancient Councilors straighten.
+Everyone turned as a figure materialized in the center of Council chamber. She was tall and ethereal, her form seeming to shift between solid and mist. Her eyes were silver, reflecting light like mirrors, and power radiated from her in waves that made even the ancient Councilors straighten.
 
 "Who dares enter this chamber uninvited?" Seraphina demanded, though her tone held more curiosity than anger.
 
-"I am Sylvanas Mistral, Archon of Air and Sky, Lady of the Eastern Reaches." The woman's voice was like wind chimes, beautiful and slightly unsettling. "And I have come to offer alliance against our mutual enemy."
+"I am Sylvanas Mistral, Archon of Air and Sky, Lady of Eastern Reaches." The woman's voice was like wind chimes, beautiful and unsettling. "And I have come to offer alliance against our mutual enemy."
 
 The chamber erupted in shocked whispers. An Archon—a genuine, ancient Archon—standing before them, offering aid.
 
 "Why would you help us?" I asked, finding my voice.
 
-Sylvanas's silver eyes fixed on me, and I felt her attention like a physical weight. "Because Terravos has become what we all feared when the Archon system was created—a tyrant seeking to rebuild the old empires. He's been recruiting allies, promising them territory and power in exchange for their support. I've seen his letters, his negotiations. He plans to conquer everything from here to the Eastern Reaches, establishing himself as supreme ruler."
+Sylvanas's silver eyes fixed on me, and I felt her attention like a physical weight. "Because Terravos has become what we all feared when the Archon system was created—a tyrant seeking to rebuild the old empires. He's been recruiting allies, promising them territory and power in exchange for their support. I've seen his letters, his negotiations. He plans to conquer everything from here to Eastern Reaches, establishing himself as supreme ruler."
 
 "And you'd rather that didn't happen," Seraphina concluded.
 
@@ -6062,7 +6064,7 @@ It was a pragmatic alliance, based on mutual self-interest rather than trust or 
 
 "The Council must vote," Seraphina said. "But first—Archon Mistral, what can you tell us about Terravos's forces and strategy?"
 
-Sylvanas waved her hand, and an illusory map appeared in the air—Nocturne at the center, surrounded by Terravos's army in detailed positions.
+Sylvanas waved her hand, and an illusory map appeared in the air—Nocturne at center, surrounded by Terravos's army in detailed positions.
 
 "He's arranged his forces for siege, not assault," she explained. "He wants to starve you out, force surrender through attrition. He has time—he's ancient and patient. But he also has a weakness. His army is bound to him personally. If we can break his concentration, disrupt his control, the corrupted warriors become disorganized."
 
@@ -6072,11 +6074,11 @@ Sylvanas smiled, sharp and predatory. "By making him fight on multiple fronts si
 
 "You want me as bait," I said.
 
-"I want you as a weapon. There's a difference." She gestured at the map, and red lines appeared, showing proposed attack routes. "My forces can harry his flanks, keep him off balance. But we need something to draw his personal attention away from the siege magic he's channeling. That's where you come in."
+"I want you as a weapon. There's a difference." She gestured at map, and red lines appeared, showing proposed attack routes. "My forces can harry his flanks, keep him off balance. But we need something to draw his personal attention away from siege magic he's channeling. That's where you come in."
 
 "This is madness," Thaddeus protested. "We'd be gambling everything on an untested plan."
 
-"Do you have a better one?" Seraphina asked. When he didn't respond, she turned to the full Council. "We vote. All in favor of accepting Archon Mistral's alliance and granting temporary unified command to Riven Sixxx for the duration of this crisis?"
+"Do you have a better one?" Seraphina asked. When he didn't respond, she turned to full Council. "We vote. All in favor of accepting Archon Mistral's alliance and granting temporary unified command to Riven Sixxx for the duration of this crisis?"
 
 The vote was close, but it passed. Some voted from pragmatism, others from desperation, a few from actual faith in me. The reasons didn't matter—only the result.
 
@@ -6088,7 +6090,7 @@ No pressure.
 
 "They're already here, circling above Nocturne under cover of my magic. Say the word and they descend." She smiled at my surprised expression. "I've been watching this situation develop for weeks. Did you think I'd come unprepared?"
 
-"Right." I turned to the assembled leaders. "Viktor, I need the werewolf packs organized into rapid response units. Lysandra, coordinate the combat mages into fire teams. Councilor Meridia, you're in charge of maintaining the barriers—that's your only focus. Everyone else, report to your faction leaders and prepare for coordinated defense."
+"Right." I turned to assembled leaders. "Viktor, I need the werewolf packs organized into rapid response units. Lysandra, coordinate the combat mages into fire teams. Councilor Meridia, you're in charge of maintaining the barriers—that's your only focus. Everyone else, report to your faction leaders and prepare for coordinated defense."
 
 The chamber exploded into activity as people dispersed to follow orders. It felt surreal—these ancient, powerful beings taking direction from me, a twenty-three-year-old who'd been supernatural for less than a year.
 
@@ -6106,13 +6108,13 @@ I blinked, processing what she was saying. "You want to make our bond public? Of
 
 "I want to bind myself to you in every way that matters in supernatural society. Bond mate, life partner, whatever title makes it absolutely clear that you and I are permanent." Her amber eyes were fierce. "I won't have some political player thinking they can seduce you away from me for advantage."
 
-Despite everything—the siege, the war, the impossible pressure—I found myself smiling. "Are you asking me to marry you?"
+Despite everything—the siege, the war, the impossible pressure—I smiling. "Are you asking me to marry you?"
 
 "In every way that matters to our world, yes." She looked almost vulnerable. "If you'll have me."
 
-"Rae, I've been yours since the moment you saved me from Terravos's initial attack. The bond just made it official." I pulled her close, not caring who might be watching. "Yes. Absolutely yes. We'll do whatever ceremony or ritual supernatural society requires. You're mine, I'm yours, and that's not changing no matter what happens."
+"Rae, I've been yours since the moment you saved me from Terravos's initial attack. The bond just made it official." I pulled her close, not caring who was watching. "Yes. Absolutely yes. We'll do whatever ceremony or ritual supernatural society requires. You're mine, I'm yours, and that's not changing no matter what happens."
 
-She kissed me, hard and desperate and full of all the emotion we couldn't voice in words. When we finally broke apart, I saw Lady Seraphina watching us with an expression that might have been approval.
+She kissed me, hard and desperate and full of all the emotion we couldn't voice in words. When we finally broke apart, I saw Lady Seraphina watching us with an expression that might were approval.
 
 "A bonded pair declaring permanent partnership," she observed. "That will require a formal ceremony. Normally we'd wait months for proper preparation, but under the circumstances..."
 
@@ -6124,15 +6126,15 @@ She kissed me, hard and desperate and full of all the emotion we couldn't voice 
 
 ---
 
-Before the ceremony, as twilight deepened into Nocturne's version of night, I found myself alone on one of the Council Hall's balconies. The view from here showed the city spread out below, and beyond its shimmering barriers, the glow of Terravos's army like a ring of hostile fireflies.
+Before the ceremony, as twilight deepened into Nocturne's version of night, I alone on one of Council Hall's balconies. The view from here showed the city spread out below, and beyond its shimmering barriers, the glow of Terravos's army like a ring of hostile fireflies.
 
 "Contemplating your empire, young Sixxx?"
 
-I didn't need to turn to recognize Ambassador Kaine's oily voice. He emerged from the shadows, his earth-power presence making the stone beneath my feet vibrate subtly.
+I didn't need to turn to recognize Ambassador Kaine's oily voice. He emerged from shadows, his earth-power presence making the stone beneath my feet vibrate subtly.
 
 "I don't have an empire," I said. "And I don't want one."
 
-"Don't you?" He came to stand beside me, looking out at the same view. "Military command over Nocturne. An Air Archon as your ally. A familiar who'll be formalized as your life partner tonight. You're accumulating power at a remarkable rate for someone who claims not to want it."
+"Don't you?" He came to stand beside me, looking out at same view. "Military command over Nocturne. An Air Archon as your ally. A familiar who'll be formalized as your life partner tonight. You're accumulating power at a remarkable rate for someone who claims not to want it."
 
 "I'm surviving. There's a difference."
 
@@ -6144,7 +6146,7 @@ Despite myself, I asked, "Who?"
 
 My blood ran cold. "I'm nothing like him."
 
-"Aren't you? You've nearly died multiple times for strangers. You've taken command of an entire city's defense. You're binding yourself permanently to a familiar who once served him." His eyes glinted with something that might have been pity or malice. "History doesn't repeat, young Sixxx. But it does rhyme. And your particular rhyme scheme is becoming... familiar."
+"Aren't you? You've nearly died multiple times for strangers. You've taken command of an entire city's defense. You're binding yourself permanently to a familiar who once served him." His eyes glinted with something that might were pity or malice. "History doesn't repeat, young Sixxx. But it does rhyme. And your particular rhyme scheme is becoming... familiar."
 
 "Why are you telling me this? If you think I'm becoming a monster, why not just leave and let Terravos finish the job?"
 
@@ -6152,15 +6154,15 @@ My blood ran cold. "I'm nothing like him."
 
 He reached into his coat and withdrew a small crystal, pressing it into my hand before I could refuse.
 
-"When you start to lose yourself—and you will, everyone does under enough pressure—activate this. It will show you the truth of what you're becoming. Not Terravos's truth, not the Council's truth. Just... truth." His expression was unreadable. "Consider it a gift from someone who's seen too many promising young leaders turn into the monsters they fought against."
+"When you start to lose yourself—and you will, everyone does under enough pressure—activate this. It will show you the truth of what you're becoming. Not Terravos's truth, not the Council's truth. Just... truth." His expression was unreadable. "Consider it a gift from someone who's seen too many promising young leaders turn into monsters they fought against."
 
-"If I activate it, will it hurt my people? Is this some kind of trap?"
+"If I activate it, will it hurt my people? Is this some trap?"
 
 "No trap. Just a mirror." Kaine stepped back toward the shadows. "Use it or don't—your choice. But remember this moment, when you still have the luxury of doubt. When power accumulates too quickly, doubt is the last thing to go before the fall."
 
-He vanished into the darkness, leaving me alone with the crystal and a chill that had nothing to do with the evening air.
+He vanished into darkness, leaving me alone with the crystal and a chill that had nothing to do with the evening air.
 
-I stared at the small object in my palm. It looked harmless—clear crystal, faintly warm, thrumming with contained magic. But Kaine's words had struck deeper than I wanted to admit.
+I stared at small object in my palm. It looked harmless—clear crystal, faintly warm, thrumming with contained magic. But Kaine's words had struck deeper than I wanted to admit.
 
 Was I becoming him? The Mad Blood Archon? Walking the same path, making the same justifications, accumulating the same power?
 
@@ -6186,29 +6188,29 @@ The ritual itself was ancient, predating even the Council. Lady Seraphina presid
 
 "I do," Raechelle echoed.
 
-"Then by the ancient laws, by the power vested in me as Voice of the Council, I declare you bound. Life to life, soul to soul, magic to magic. What the bond has joined, let none tear asunder."
+"Then by the ancient laws, by the power vested in me as Voice of Council, I declare you bound. Life to life, soul to soul, magic to magic. What the bond has joined, let none tear asunder."
 
 The crimson cord flared brilliant red, then dissolved into light that flowed into both of us. I felt our existing bond deepen impossibly, becoming something more fundamental than magic. Raechelle gasped as the same sensation hit her.
 
 We were bound. Truly, permanently, absolutely bound.
 
-The chamber erupted in applause. Even those who'd opposed my command or questioned my authority couldn't deny the significance of what had just occurred. I'd publicly committed to Raechelle, declared her my equal and partner, and by doing so, announced to the supernatural world that I was unshakable in my choices.
+The chamber erupted in applause. Even those who'd opposed my command or questioned my authority couldn't deny the significance of what had just occurred. I'd publicly committed to Raechelle, declared her my equal and partner, and by doing so, announced to supernatural world that I was unshakable in my choices.
 
 As the ceremony concluded, Viktor approached with his mother, Elder Mara. The old werewolf looked ancient but formidable, her eyes sharp despite her age.
 
 "That was well done, Blood Archon," she said. "In our culture, bonding is sacred. You've honored your familiar in the way she deserves. The Ironclad pack recognizes your union."
 
-"As does the Blackwood coven," Morgana added, appearing from the crowd. "You've made a powerful statement tonight, Riven. That you value loyalty and love over political advantage. That matters to those of us watching."
+"As does the Blackwood coven," Morgana added, appearing from crowd. "You've made a powerful statement tonight, Riven. That you value loyalty and love over political advantage. That matters to those of us watching."
 
-One by one, the faction leaders approached to offer their recognition of the bonding. It was more than a ceremony—it was a political declaration that solidified my position and Raechelle's.
+One by one, the faction leaders approached to offer their recognition of bonding. It was more than a ceremony—it was a political declaration that solidified my position and Raechelle's.
 
-But the celebration was short-lived. A messenger burst into the chamber, her face pale with fear.
+But the celebration was short-lived. A messenger burst into chamber, her face pale with fear.
 
-"The barriers on the northern perimeter—they're failing! Terravos is breaking through!"
+"The barriers on northern perimeter—they're failing! Terravos is breaking through!"
 
 The festive atmosphere vanished instantly. I was back in command mode within seconds.
 
-"All forces to defensive positions! Archon Mistral, now would be a good time for your warriors to enter the fight. Viktor, take your packs to the northern breach. Lysandra, I need offensive magic focused on slowing their advance. Move!"
+"All forces to defensive positions! Archon Mistral, now was a good time for your warriors to enter the fight. Viktor, take your packs to northern breach. Lysandra, I need offensive magic focused on slowing their advance. Move!"
 
 The chamber exploded into organized chaos as everyone rushed to their positions. I turned to Raechelle, seeing my own determination reflected in her eyes.
 
@@ -6226,7 +6228,7 @@ And I intended to make sure Nocturne—and everyone I loved—survived it.
 
 The northern district was chaos incarnate.
 
-Corrupted warriors poured through three breaches in the barrier, clashing with desperate defenders. Earth elementals smashed buildings, their massive forms impervious to conventional weapons. Above, Sylvanas's wind riders diving from the sky, their attacks disrupting the enemy formations.
+Corrupted warriors poured through three breaches in the barrier, clashing with desperate defenders. Earth elementals smashed buildings, their massive forms impervious to conventional weapons. Above, Sylvanas's wind riders diving from sky, their attacks disrupting the enemy formations.
 
 But it wasn't enough. We were being overwhelmed.
 
@@ -6246,13 +6248,13 @@ And across the battlefield, dozens of corrupted warriors simply... stopped. Thei
 
 "Fire teams, now!" I shouted.
 
-Lysandra's combat mages unleashed concentrated attacks on the frozen warriors, destroying them before they could break free from my hold. One breach was sealed by Viktor's pack, who fought with savage coordination. The wind riders harried the elementals, keeping them off-balance.
+Lysandra's combat mages unleashed concentrated attacks on frozen warriors, destroying them before they could break free from my hold. One breach was sealed by Viktor's pack, who fought with savage coordination. The wind riders harried the elementals, keeping them off-balance.
 
 We were turning the tide.
 
 Then I felt it—a massive surge of power from beyond the barriers. Terravos himself was coming, drawn by our resistance. His presence was like a mountain given consciousness, vast and implacable.
 
-"Archon approaches!" Sylvanas called out, her voice carrying on the wind. "Riven, you need to face him! Draw him away from the siege magic!"
+"Archon approaches!" Sylvanas called out, her voice carrying on wind. "Riven, you need to face him! Draw him away from siege magic!"
 
 She was right. If Terravos divided his attention between maintaining the attack and fighting me directly, we might have a chance.
 
@@ -6262,9 +6264,9 @@ I looked at Raechelle, seeing my own determination reflected back. *Together?*
 
 I gathered my power—blood magic, the strength from our bond, everything I'd learned from Corvinus and discovered in the archives. And I sent out a challenge that I knew Terravos couldn't ignore.
 
-"Earth Archon!" I called, my voice enhanced to carry for miles. "I am Riven Sixxx, Blood Archon, heir to the Balance, defender of Nocturne! Face me if you dare!"
+"Earth Archon!" I called, my voice enhanced to carry for miles. "I am Riven Sixxx, Blood Archon, heir to Balance, defender of Nocturne! Face me if you dare!"
 
-For a moment, nothing happened. Then the ground split open, and he rose from the earth itself.
+For a moment, nothing happened. Then the ground split open, and he rose from earth itself.
 
 Terravos was massive, easily twenty feet tall, his form seemingly carved from living stone and metal. His eyes glowed like forge fires, and his voice was the rumble of avalanches.
 
@@ -6278,7 +6280,7 @@ It was like trying to move a mountain with my bare hands. His power was immense,
 
 But I wasn't alone.
 
-Raechelle struck from his blind side, her panther form enhanced by our bond, claws raking across stone skin with surprising effect. Sylvanas descended from above, winds fierce enough to scour stone battering at Terravos's head. And from the ground, Viktor and a dozen werewolves harried his legs, too fast to catch but persistent as gnats.
+Raechelle struck from his blind side, her panther form enhanced by our bond, claws raking across stone skin with surprising effect. Sylvanas descended from above, winds fierce enough to scour stone battering at Terravos's head. And from ground, Viktor and a dozen werewolves harried his legs, too fast to catch but persistent as gnats.
 
 We weren't trying to defeat him—we were trying to distract him.
 
@@ -6286,13 +6288,13 @@ And it was working. His focus was divided, his siege magic wavering. The barrier
 
 "Clever," Terravos rumbled. "But insufficient."
 
-He raised both hands, and I felt reality itself ripple. The ground became liquid, the air grew thick as stone, and gravity seemed to reverse for a heart-stopping moment.
+He raised both hands, and I felt reality itself ripple. The ground became liquid, the air grew thick as stone, and gravity seemed reverse for a heart-stopping moment.
 
 Domain magic. He was declaring this space his, rewriting the rules of reality within his power.
 
 I had one response to that.
 
-I reached deep, opened myself fully to the bond with Raechelle, and unleashed Blood Dominion again. Fifty feet around me became mine, absolutely and completely.
+I reached deep, opened myself fully to bond with Raechelle, and unleashed Blood Dominion again. Fifty feet around me became mine, absolutely and completely.
 
 Our domains clashed where they met, reality screaming in protest. His earth magic against my blood authority. Age and power against youth and desperation.
 
@@ -6306,7 +6308,7 @@ Behind him, unnoticed in our clash of powers, Lysandra and Morgana were working 
 
 They activated it.
 
-Chains of pure magic erupted from the circle, wrapping around Terravos's massive form. He roared in surprise and anger, his domain wavering.
+Chains of pure magic erupted from circle, wrapping around Terravos's massive form. He roared in surprise and anger, his domain wavering.
 
 "Now!" I shouted.
 
@@ -6320,7 +6322,7 @@ The combined assault was too much even for an ancient Archon. Terravos's form cr
 
 For a long moment, we stared at each other—Blood Archon and Earth Archon, old enemy and new threat. Then Terravos made his choice.
 
-He sank into the earth, his form dissolving into stone and soil, his army collapsing without his direct control. The corrupted warriors fell, the elementals crumbled, and the siege broke.
+He sank into earth, his form dissolving into stone and soil, his army collapsing without his direct control. The corrupted warriors fell, the elementals crumbled, and the siege broke.
 
 We'd won.
 
@@ -6328,13 +6330,13 @@ Not permanently. Not conclusively. But we'd driven off an ancient Archon and pro
 
 I released Blood Dominion and immediately collapsed. Raechelle was there, catching me, her worry flooding through our bond.
 
-"We did it," I whispered. "We actually did it."
+"We did it," I whispered. "We did it."
 
 "You did it," she corrected. "You stood against an Archon and made him blink first."
 
 Around us, the defenders were cheering. Nocturne had survived. Against all odds, against an ancient enemy, we'd held.
 
-Lady Seraphina approached, her expression mixing exhaustion with something that might have been pride.
+Lady Seraphina approached, her expression mixing exhaustion with something that might were pride.
 
 "Well fought, Commander. You've earned your position ten times over today."
 
@@ -6344,7 +6346,7 @@ Lady Seraphina approached, her expression mixing exhaustion with something that 
 
 "Then we'll fight the next battle too. And the one after that. Until he gives up or we end this permanently."
 
-Sylvanas descended from the sky, landing with impossible grace. "Impressive, young Archon. You've grown far more than I expected. Terravos underestimated you—he won't make that mistake again."
+Sylvanas descended from sky, landing with impossible grace. "Impressive, young Archon. You've grown far more than I expected. Terravos underestimated you—he won't make that mistake again."
 
 "Will you stay? Help us prepare for his next attack?"
 
