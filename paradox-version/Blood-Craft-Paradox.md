@@ -763,64 +763,436 @@ Gods help us both.
 
 I woke to the crunch of gravel under tires.
 
-Home. We were home. The driveway stretched ahead, familiar even in the dark. For one blissful second, I forgot. Thought Mom and Dad were inside, that I'd walk through the door and smell coffee, hear Dad's keyboard clicking.
+The sound pulled me from darkness slowly, reluctantly. For a few precious seconds, I existed in that liminal space between sleep and waking where nothing had happened yet. Where my parents were still alive. Where I was still just Riven Sixxx, computer science student with a cat girl fetish and a normal, boring life.
+
+Then consciousness crashed back in, and I remembered everything.
+
+Home. We were home. The driveway stretched ahead, familiar even in the dark—that same rutted path Dad had been meaning to fill in for years, the same oak trees flanking it like sentries. For one blissful second, I forgot. Thought Mom and Dad were inside, that I'd walk through the door and smell coffee, hear Dad's keyboard clicking at 2 AM, see Mom curled up on the couch with a book.
 
 Then I remembered.
 
-"How long was I out?" My voice came out rough.
+And the grief hit me like a physical blow, stealing the air from my lungs. My chest constricted. My throat closed. For a moment, I couldn't breathe around the weight of it—the crushing, suffocating knowledge that they were gone. Really gone. Not on a trip, not at the store, not coming back. Ever.
 
-"Few hours." Raechelle pulled up to the house. Two stories, wraparound porch, paint peeling in places. It looked smaller than I remembered. Or maybe I was different now.
+Dead.
 
-"How did you know where I live?"
+My parents were dead.
 
-"Questions later. Inside first." She was gripping the steering wheel too tight. "Your scent—it's... distracting. The awakening changed you. Made you more."
+The words felt impossible. Wrong. Like if I just refused to believe them hard enough, reality would rewind and give me a different outcome. But the blood on my clothes was real. The ash in my hair was real. The smell of smoke that clung to my skin was real.
 
-I stepped out of the car. The air smelled wrong—no, I smelled wrong. Everything smelled different. Sharper. I could pick out individual scents: wood smoke from a neighbor miles away, pine sap, Raechelle's skin (jasmine and something darker, older).
+They were gone.
 
-"Inside," she said. "Now."
+"How long was I out?" My voice came out rough, scraped raw. I barely recognized it. When had I started sounding like someone else?
 
-The front door was unlocked. Always was. Dad said locks were for city people. The thought of him made my throat close up.
+"Few hours." Raechelle pulled up to the house, the car crunching to a stop. "Dawn's not far off."
 
-The house was dark. Empty. I flipped the light switch.
+The house looked the same as it always had. Two stories, wraparound porch, white paint peeling in places where Dad kept saying he'd get around to repainting. The porch swing Mom loved, the potted plants she'd been nursing through the Texas heat, the welcome mat that said "Come back with a warrant" that Dad had bought as a joke.
 
-Nothing looked different, but everything felt different. The couch Mom picked out. Dad's coffee mug still on the counter from this morning. This morning. A lifetime ago.
+It looked smaller than I remembered. Or maybe I was different now. Bigger. Changed. Broken in ways that made everything else seem smaller by comparison.
 
-"Where's the journal?" Raechelle asked quietly.
+I started to open the door, and Raechelle's hand shot out, gripping my wrist. Not hard, but firm. Commanding.
 
-"Mom's room. Hidden compartment in her closet." I'd found it when I was twelve, snooping. Never told her I knew.
+"Wait."
 
-We went upstairs. Mom and Dad's bedroom. I'd been in here a thousand times, but now it felt like trespassing. Like I was violating something sacred.
+I froze. "What?"
 
-The closet smelled like Mom. Her perfume, the lavender sachets she kept with her clothes. My eyes burned.
+"Your scent." She was staring straight ahead, jaw clenched. "It's... distracting. The awakening changed you. Made you more."
 
-"Riven." Raechelle's hand on my shoulder. Light. Careful. "The journal."
+More what? More fucked up? More obviously a freak? More—
 
-Right. I pushed aside dresses, found the back panel. Pressed the hidden release Dad had showed me years ago. "In case something happens," he'd said. I'd thought he was being paranoid.
+"More Blood Archon," she clarified, as if reading my thoughts. "Your heritage is surfacing faster than I expected. In a few hours, you've gone from barely detectable to... this."
+
+"Is that bad?"
+
+"It's dangerous." Her eyes flicked to mine, and for the first time, I saw something in them that might've been hunger. Or fear. Or both twisted together. "You smell like power. Like prey. Like something every predator for miles will want to either kill or claim. And right now, I'm..."
+
+She didn't finish the sentence. Didn't need to. I could see the tension in her shoulders, the way her fingers had turned to claws against the steering wheel.
+
+"You're fighting not to attack me," I said flatly.
+
+"No." The word came out sharp. Definitive. "I'm fighting not to protect you. There's a difference. My every instinct is screaming at me to keep you safe, to eliminate any threats before they get within a mile of you. To..." She stopped. Shook her head. "We need to get inside. Behind wards. Before something else notices you."
+
+I stepped out of the car, and the world hit me like a drug.
+
+Everything was different. No—I was different, and that made everything else different by extension.
+
+The air smelled wrong. No, not wrong. Right. More right than it had ever been. I could pick out individual scents: wood smoke from a neighbor miles away, pine sap leaking from the tree by the mailbox, wild onions growing along the fence line, the chemical smell of asphalt still warm from the day's heat.
+
+And Raechelle. Gods, Raechelle.
+
+She smelled like jasmine and nighttime and something darker, older. Blood and moonlight and centuries. Every breath I took of her scent made my head swim, made parts of my brain light up that hadn't been active before. Predator recognition. Mate recognition. Danger-and-desire all twisted together until I couldn't separate them.
+
+"Inside," she said, her voice strained. "Now. Before we do something we'll both regret."
+
+The front door was unlocked. Always was. Dad said locks were for city people, that anyone determined enough to get in would get in regardless, and anyone who wasn't determined probably didn't need keeping out. I'd argued with him about it, cited crime statistics and home invasion rates, but he'd just smiled and said, "We're safe here."
+
+He'd been wrong.
+
+The thought of him made my throat close up. Made my eyes burn. I stepped inside and nearly buckled under the weight of everything that was absent. No coffee smell. No keyboard clicks. No Mom calling out "Welcome home, baby" from wherever she'd been reading.
+
+Just silence. Empty, echoing silence that used to feel peaceful and now felt like a grave.
+
+The house was dark. I flipped the light switch by muscle memory.
+
+The lights came on, revealing a scene of perfect normalcy that made everything worse. Nothing had changed. Nothing looked different. But everything felt different, because the people who made this place home were gone.
+
+The couch Mom had picked out two years ago, agonizing over the color ("Sage or olive? They're different, Riven, I swear they're different!"). Dad's coffee mug still on the counter from this morning—this morning, a lifetime ago—with a faint brown ring around the bottom. The remote on the arm of Dad's chair, positioned exactly where his hand would fall when he sat down.
+
+All of it waiting for people who would never come home.
+
+My legs gave out. I caught myself on the doorframe, breathing hard, fighting the urge to either scream or break something or both.
+
+"Riven." Raechelle's voice, soft. Careful. The way you'd talk to a spooked animal. "We need to secure the house. Wards. Your mother would have maintained them, but they'll be fading now that she's..."
+
+Dead. The word she didn't say hung in the air between us.
+
+"I don't know how to do wards," I said. My voice sounded flat. Distant. Like someone else was using my vocal cords.
+
+"I do. But I need permission. It's your house now. Your bloodline's property. I can't alter the magical protections without the owner's consent."
+
+Something about that penetrated the grief-fog. "Wait. Magic? Like, actual magic? Not just... whatever happened to the car, but real, I-can-do-spells magic?"
+
+Raechelle turned to look at me fully, and her expression was almost pitying. "Riven. You're a Blood Archon. Magic isn't something you do—it's something you are. It's in every cell of your body, woven into your DNA, part of your fundamental nature. Your mother was bloodline but not gifted. Your father was human. But you..." She paused, choosing words carefully. "You are power made flesh. And right now, that power is waking up, and it's going to change everything about you."
+
+I wanted to argue. Wanted to call bullshit. Wanted to wake up from this nightmare and find out it was all some horrible joke.
+
+But I'd seen my mother impaled on stone spikes. Watched the car explode with her still inside. Felt Raechelle pull me from the wreckage with impossible strength. Smelled things I shouldn't be able to smell from miles away.
+
+This was real. All of it was real.
+
+And if it was real, then I needed to survive it.
+
+"Permission granted," I said. "Do whatever you need to do to secure the house."
+
+Raechelle nodded and began moving through the rooms with purpose, her hands tracing patterns in the air that left faint glowing trails. I watched her work, trying to understand what I was seeing, but it was like trying to read a language I'd never learned. The symbols meant nothing to me, but I could feel their effect—a pressure building in the air, a sense of safety settling over the house like a weighted blanket.
+
+"There," she said finally. "Basic protections. They won't stop a determined Archon, but they'll keep out lesser threats and alert me if something tries to breach them."
+
+"How long will they last?"
+
+"With your mother gone? A few weeks, maybe. Then they'll need to be renewed." She looked at me seriously. "By then, you'll need to learn to do it yourself."
+
+"I don't know how to—"
+
+"You will. It's in your blood. Literally." She gestured around the house. "For now, we have more immediate concerns. The journal. Your mother mentioned it. Said it would explain everything."
+
+The journal. Right. Mom's last words had included instructions to find it. To read it. To learn the truth she and Dad had been hiding my entire life.
+
+"Where's the journal?" Raechelle asked quietly, though something in her tone suggested she already knew.
+
+"Mom's room." My voice came out flat. Emotionless. "Hidden compartment in her closet. I found it when I was twelve, snooping. Never told her I knew."
+
+We went upstairs, each step feeling heavier than the last. The stairs that had supported me thousands of times, taking me from childhood to adolescence to adulthood, now felt like I was climbing toward something I couldn't take back. Once I read that journal, once I learned whatever truth was waiting for me, I could never unknow it.
+
+Part of me wanted to turn around. To go back downstairs, walk out the door, keep walking until I found some new place where none of this was real.
+
+But Raechelle was behind me, and something about her presence—her quiet strength, her certainty—pulled me forward.
+
+Mom and Dad's bedroom. I'd been in here a thousand times. Brought them coffee in the morning, helped Mom change the sheets, sat on the bed while Dad told me stories before I got too old for that kind of thing. It was just a room. Four walls, a bed, furniture. Nothing special.
+
+Except it was their room. Their space. The place where they'd whispered secrets and made plans and probably argued about things I'd never know. The place where they'd been most themselves, without having to perform for me.
+
+And now I was about to violate that privacy by reading Mom's most private thoughts.
+
+"Riven." Raechelle's hand on my shoulder. Light. Careful. Like she was afraid I'd shatter if she pressed too hard. "The journal. We need to know what she wanted you to learn."
+
+Right. This wasn't about violating Mom's privacy. This was about survival. About understanding what I'd become and what threats I was facing.
+
+I could fall apart later. Right now, I needed to be functional.
+
+The closet smelled like Mom. Her perfume—something with vanilla and a hint of spice that she'd special-ordered online. The lavender sachets she kept with her clothes. The particular scent of her skin that I'd known my entire life.
+
+My eyes burned. I blinked hard, refused to let the tears fall. Later. I could break down later.
+
+I pushed aside dresses, found the back panel. It looked like part of the wall, but if you knew where to press... There. Hidden release. The mechanism Dad had shown me years ago with a wink and a whispered "In case something happens to us and you need to get to this."
+
+I'd thought he was being paranoid. Preparing for some unlikely scenario that would never come to pass.
+
+He'd been preparing me for tonight.
 
 The compartment clicked open.
 
-Inside: a leather-bound journal, worn at the edges. Mom's handwriting on the cover. *For Riven. When the time comes.*
+Inside: a leather-bound journal, worn at the edges from years of handling. Mom's handwriting on the cover in faded ink. *For Riven. When the time comes.*
 
 The time had come.
 
-My hands shook as I pulled it out. The leather was warm, like it had been waiting for me. I sat on the floor, back against the bed, and opened it.
+My hands shook as I pulled it out. The leather was warm, like it had been waiting for me. Like it knew. I turned it over in my hands, studying the worn cover, the slight water stain on one corner, the way the binding was cracked from being opened and closed so many times.
+
+How often had Mom written in this? How many years had she been documenting secrets, preparing explanations for a future she knew was coming?
+
+I couldn't read it standing up. Couldn't hold it together while standing in her closet surrounded by her things. I sat on the floor, back against the bed—the same bed I'd jumped on as a kid until Dad told me to stop—and opened the journal.
+
+Mom's handwriting stared back at me. Familiar. Beloved. Each loop and curve a piece of her I'd never have again.
 
 *My dearest Riven,*
 
-*If you're reading this, then I'm gone, and you've awakened. I'm so sorry I couldn't be there to guide you through this, but know that everything your father and I did was to protect you, to give you the best chance at survival and happiness.*
+*If you're reading this, then I'm gone, and you've awakened. I'm so sorry I couldn't be there to guide you through this, to hold your hand and answer your questions and help you understand. But know that everything your father and I did—every decision we made, every secret we kept—was to protect you, to give you the best chance at survival and happiness.*
 
 *You are not who you think you are.*
 
-The words blurred. I blinked, kept reading.
+The words blurred. I blinked hard, kept reading.
 
-*Your birth was not natural. Your father and I... we are not your biological parents, though we loved you as our own from the moment we held you. You are the reincarnation of someone ancient, someone powerful, someone the supernatural world has feared for centuries.*
+*Your birth was not natural. Your father and I... we are not your biological parents, though we loved you as our own from the moment we held you. You were given to us when you were barely days old, entrusted to our care by someone who saw in you both terrible danger and infinite potential.*
+
+*You are bloodline, Riven. Pure Blood Archon bloodline, descended from power so ancient that modern supernatural beings barely remember its origin. But you're more than just bloodline. You carry something inside you—a genetic memory, an echo of someone who lived and died three hundred years ago.*
+
+*Someone the supernatural world has feared for centuries.*
 
 *You are the Blood Archon reborn.*
 
-The room tilted. Or maybe I did.
+The room tilted. Or maybe I did. The journal slipped from my numb fingers, and I couldn't pick it up. Couldn't move. Couldn't breathe.
 
-Raechelle was beside me now, close but not touching. "Keep reading," she said quietly.
+Blood Archon. The words echoed in my head, meaningless and all-too-meaningful at the same time. I didn't know what that meant. Didn't know what I was supposed to do with this information.
 
+But I knew it was bad. Knew it from the way Raechelle had gone still beside me, from the way Terravos had looked at me with hatred and pity mixed together, from the way my own mother's words carried weight like a death sentence.
+
+Raechelle was beside me now, close but not touching. "Keep reading," she said quietly. Not a command. A request. Almost a plea.
+
+I picked up the journal with shaking hands.
+
+*The Blood Archon—the first, the original—was born three centuries ago during what historians call the Great Convergence, when the barriers between worlds grew thin and magic flooded into reality like water through a broken dam. He was the most powerful blood mage who ever lived, capable of feats that modern supernatural beings consider impossible. He could manipulate life itself, reshape flesh and bone with a thought, drain the vitality from hundreds to fuel his own immortality.*
+
+*He was also completely, irreversibly insane.*
+
+My breath caught. The words swam before my eyes, but I forced myself to keep reading.
+
+*They say power corrupts, but that's not quite right. Power reveals. It strips away the pretense, the social conditioning, the mask we all wear to be acceptable to each other. The Blood Archon's power revealed something broken inside him—or maybe the power itself broke him, fractured his mind under the weight of all that potential. No one alive today knows which came first.*
+
+*What we do know is that he slaughtered thousands before they finally brought him down. Entire bloodlines extinct. Villages burned. A swath of destruction across three continents that the supernatural community spent decades covering up. When he finally fell—betrayed by someone close to him, the stories say—the Council of Elders did something unprecedented. They didn't just kill him. They tried to erase him. Bound his power, scattered his remains, rewrote history to pretend he'd never existed.*
+
+*But bloodline magic doesn't work that way. You can't erase power that fundamental. You can't kill something that's woven into the fabric of reality itself. The Blood Archon's essence endured, dormant, waiting for the right genetic combination to manifest again.*
+
+*Waiting for you.*
+
+I stopped reading. Had to stop. The journal felt like it weighed a thousand pounds in my hands, each word adding to the crushing weight in my chest.
+
+"Three hundred years," I whispered. My voice sounded strange—hollow, shocked. "He's been dead for three hundred years."
+
+"Yes." Raechelle's reply was soft, careful. She still hadn't touched me, but I could feel her presence like heat against my side. Close enough to catch if I fell. Far enough to give me space to break.
+
+"And I'm... what? His reincarnation? His clone?"
+
+"Neither." She shifted, and I heard fabric rustle as she pulled her knees up, mirroring my position. "You're not him. You're you—Riven, a completely separate person with your own soul, your own will. But you carry his genetic echo, his bloodline signature. Think of it like... inheriting someone's DNA, their physical traits, their predispositions. But not their personality. Not their choices."
+
+"But the power—"
+
+"Is the same. Yes." She didn't sugarcoat it. "The potential is there. The same abilities that drove him mad are dormant in you, waiting to awaken fully. That's why..." She trailed off.
+
+"Why everyone's afraid of me." I finished the sentence she couldn't. "Why Terravos wanted me dead. Why you're here."
+
+She didn't deny it. What could she say? It was true. I was carrying the genetic blueprint of a monster, and everyone who knew what that meant wanted me either controlled or eliminated.
+
+I looked back down at the journal, at Mom's handwriting that was already blurring with the tears I couldn't quite stop. She'd known. She'd known all of this, and she'd loved me anyway.
+
+*I can't tell you how many nights I lay awake,* the next page read, *terrified of what you might become. Terrified that one day I'd look into your eyes and see a stranger. That the sweet boy who cried at sad movies and brought home injured animals would vanish, replaced by something ancient and terrible.*
+
+*But that never happened. You were always just Riven. Kind. Gentle. So achingly normal that sometimes I'd forget what you carried inside you. You'd make pancakes on Sunday mornings and complain about your computer science homework and argue with your father about whether Star Trek or Star Wars had better world-building, and I'd think: maybe we were wrong. Maybe the experts were wrong. Maybe you're not the Blood Archon at all.*
+
+*But I knew better. We both did. Your father and I could see the signs, small at first but growing more pronounced as you approached your twenty-third birthday. The way injuries healed too fast. The way animals were drawn to you, or sometimes fled from you in terror. The way your eyes sometimes reflected light like a predator's when you were angry.*
+
+*The awakening was coming. We knew it. Prepared for it as best we could.*
+
+"Why twenty-three?" The question came out cracked, broken. "Why that age specifically?"
+
+Raechelle shifted beside me. "Magical maturity. For most supernatural bloodlines, full power manifests between twenty and twenty-five. Twenty-three is..." She paused. "It's when the Blood Archon originally came into his power. The age when the transformation completed and he became... what he became."
+
+History repeating itself. A cycle spanning centuries, and I was caught in the loop whether I wanted to be or not.
+
+I turned the page. My hands left damp marks on the worn leather.
+
+*We adopted you because we had to,* Mom's writing continued. *Not because we were forced—never that. But because someone had to protect you, and we were the only ones willing to try. The woman who brought you to us, she was terrified. I could see it in her eyes, the knowledge of what she was carrying. She said you were days old, that your biological mother had died in childbirth—blood magic complications, she wouldn't elaborate—and that she'd been entrusted with finding you a safe home.*
+
+*She chose us because Marcus was a warden, powerful enough to shield you from detection, and because I had studied blood magic theory enough to recognize the signs of your awakening when it came. She chose us because we were desperate for a child and foolish enough to believe we could protect something the entire supernatural world feared.*
+
+*She chose us, and we chose you.*
+
+The tears were falling now, hot and fast, dropping onto the pages. I tried to wipe them away, but they kept coming, an endless stream of grief and shock and something else I couldn't name.
+
+"They didn't have to," I choked out. "They could have said no. Could have lived. But they took me in anyway, knowing—"
+
+"Knowing you were dangerous." Raechelle's voice was closer now. Still not touching, but close enough that I could feel her warmth. "Knowing it might cost them everything. And they did it anyway because they believed in you. Believed you could be more than your legacy."
+
+I couldn't speak. Couldn't do anything but cry and hold the journal and try not to completely shatter under the weight of it all.
+
+*You need to know that we loved you,* the next page read, and somehow Mom's handwriting looked different here—shakier, like she'd been crying while writing it. *From the moment we held you, you were ours. Our son. Our Riven. Not the Blood Archon. Not some reincarnated nightmare. You.*
+
+*Every parent worries about their child. Worries they'll make the wrong choices, hurt someone, lose their way. We had those fears amplified a thousandfold. But Riven, my beautiful boy, you have to understand: you exceeded every hope we had. You were kind when you could have been cruel. Gentle when you could have been violent. You chose compassion over power every single day of your life, and that choice—that fundamental goodness—is what makes you different from him.*
+
+*You are not the Blood Archon. You never were. You're Riven Sixxx, and you're my son, and I am so proud of you I could burst.*
+
+I broke.
+
+The sob tore out of me before I could stop it, raw and ragged and completely beyond my control. Then another. Then another. My whole body shook with it, twenty-three years of grief and fear and confusion and love all pouring out at once. The journal slipped from my fingers again, but this time I didn't try to catch it.
+
+This time, I just let myself fall apart.
+
+And Raechelle caught me.
+
+Her arms came around me—careful at first, tentative, like she was afraid I'd break or push her away. But when I didn't, when I instead turned into her and buried my face against her shoulder, her grip tightened. She pulled me close, one hand cradling the back of my head, the other wrapped around my shoulders.
+
+She smelled like jasmine and night air and something wilder underneath, something that called to parts of me I didn't understand yet. But right now, I didn't care. Right now, she was solid and real and here, and that was enough.
+
+"I've got you," she murmured against my hair. "I've got you."
+
+I cried like I hadn't cried since I was a child. Great, heaving sobs that wracked my whole body. For my parents, dead and never coming back. For the life I'd thought was mine but never was. For the identity I'd lost and the one I'd inherited. For the fear of what I might become and the knowledge that I could never go back to who I was.
+
+And through it all, Raechelle held me. Didn't try to shush me or tell me it would be okay. Didn't offer empty platitudes or false comfort. She just held me and let me break, her presence steady and unwavering.
+
+I don't know how long we sat there. Could have been minutes. Could have been hours. Time felt meaningless, stretched and compressed all at once.
+
+Eventually, the sobs subsided into hiccups, then into shaky breathing. My eyes burned. My head ached. My throat felt raw. But the worst of the storm had passed, leaving behind exhaustion and a strange, hollow clarity.
+
+"Sorry," I rasped, not pulling away yet. "I got your shirt wet."
+
+"Don't care." Her voice was rough, strained in a way I didn't understand. "Are you... can you keep reading? There's more. Important things you need to know."
+
+I nodded against her shoulder, then reluctantly pulled back. The loss of contact felt like losing a piece of armor, leaving me exposed and vulnerable. But I picked up the journal again, found my place.
+
+*If you're reading this, then the awakening happened and we weren't there to guide you through it. I'm so sorry, baby. Sorry we couldn't protect you better. Sorry we couldn't stay.*
+
+*But I made arrangements. There's someone who can help you, someone who understands what you are and what you need. Her name is Raechelle, and she's been watching over you since you were ten years old. Yes, I know that sounds creepy. Yes, I know you hate the idea of being monitored. But Riven, she's kept you safe. Kept you hidden from people who would have killed you without hesitation.*
+
+I glanced at Raechelle. She was looking away, jaw tight, like she could feel my gaze but didn't want to meet it.
+
+"Since I was ten," I said. Not quite a question.
+
+"Since you were ten." She confirmed. "Your mother hired me after an incident—you wouldn't remember it, we made sure of that—where someone detected your bloodline signature. I've been living on your property since then. Watching. Protecting. Making sure no one got close enough to realize what you were."
+
+"That's..." I didn't know what that was. Disturbing? Comforting? Both? "That's why you were there tonight. At the house. You weren't just passing by."
+
+"I'm never just passing by." She finally looked at me, and her eyes were complicated—layers of emotion I couldn't parse. "Your safety has been my entire life for the last thirteen years."
+
+The weight of that settled over me. Thirteen years. More than half my life. She'd been there, invisible, a guardian I never knew I needed.
+
+*Trust her,* Mom's writing continued. *I know trust doesn't come easy for you, Riven. I know you like to verify and double-check and question everything. But please, baby, trust Raechelle. She's risked everything to keep you safe. She's the best chance you have at survival.*
+
+*She'll take you to Nocturne. It's a sanctuary city, hidden from human eyes, where supernatural beings live without fear of discovery. You'll be safer there than anywhere else. The Council has authority there, and even they won't move against you openly without proof of wrongdoing.*
+
+*Learn from her. Let her teach you to control what you're becoming. And Riven, most importantly: don't be afraid of your power. Fear is what drove the Blood Archon mad, fear and isolation and the belief that he was a monster. You're not him. You're better than him. You have something he never had—people who love you, who see your humanity.*
+
+*Remember that. Hold onto it. Let it anchor you when the power gets overwhelming.*
+
+*I love you so much, my beautiful boy. I'm sorry I couldn't stay to see the man you become. But I know—I know—you're going to be extraordinary.*
+
+*All my love,*
+*Mom*
+
+The last page. That was it. No more words, no more guidance. Just Mom's signature, familiar and beloved, the same one she'd used on permission slips and birthday cards and the backs of checks.
+
+The finality of it hit me like a physical blow. This was all I'd ever get. These pages were the last words my mother would ever say to me. The last time I'd hear her voice, even if it was just in my head as I read.
+
+"She knew," I whispered. "She knew she was going to die."
+
+"She knew it was possible." Raechelle's voice was careful, measured. Professional distance creeping back in now that I wasn't actively falling apart. "Wardens and their partners always make contingency plans. It's part of the job."
+
+"That's not a job. That's a death sentence."
+
+She didn't argue. Couldn't, really. My parents had known they might die protecting me, and they'd done it anyway. Had chosen me over their own survival.
+
+I closed the journal, held it against my chest. The leather was warm from my hands, worn smooth from Mom's. 
+
+"There's something else," Raechelle said quietly. "In the compartment. Did you see it?"
+
+I hadn't. I'd been so focused on the journal that I hadn't looked beyond it. I stood on shaky legs, moved back to the closet. The hidden compartment was still open, and there—tucked into the back corner—was a small wooden box I'd missed before.
+
+I pulled it out carefully. It was old, the wood dark with age, carved with symbols I didn't recognize. Something about it made my skin prickle, made the new awareness inside me sit up and take notice.
+
+"Open it," Raechelle said. She'd stood too, was hovering behind me. Close enough to help if needed. Far enough to give me space.
+
+The box wasn't locked. The lid lifted easily, hinges silent despite their age. Inside, nestled in faded velvet, was a pendant.
+
+But not just any pendant. The moment I saw it, I knew it was important. Knew it was mine.
+
+The chain was silver, delicate but strong. The pendant itself was a teardrop-shaped crystal, deep red like arterial blood, shot through with threads of black. It pulsed. Actually pulsed, a rhythm that matched my heartbeat exactly.
+
+"A bloodstone," Raechelle breathed. She'd gone very still. "I didn't know she had one. They're incredibly rare, virtually impossible to obtain unless you inherit one."
+
+"What does it do?"
+
+"It's a focus. A conduit for blood magic." She reached past me, fingers hovering over the crystal without touching. "It resonates with your specific bloodline signature, helps channel and control your power. With training, you could use it to—" She stopped. Shook her head. "There are many applications. Most importantly, it will help prevent your power from overwhelming you during the early stages of awakening."
+
+I lifted the pendant from its velvet nest. The chain pooled in my palm, cool and smooth. But the crystal itself was warm. Hot, even. It thrummed against my skin, that pulse growing stronger, more insistent.
+
+*Wear me,* it seemed to say. *Put me on. I'm yours. I've always been yours.*
+
+"Should I—"
+
+"Yes." Raechelle's voice was rough. "Put it on. It's been waiting for you."
+
+The clasp was simple. I fumbled with it for a moment—my hands were still shaking—but finally got it fastened. The pendant settled against my chest, right over my sternum, and the moment it touched my bare skin beneath my shirt, everything changed.
+
+Power. Pure, undiluted power flooded through me. Not violent or painful like the awakening had been, but vast. Infinite. Like standing at the edge of an ocean and realizing for the first time how deep the water went, how much existed beneath the surface.
+
+I gasped. Staggered. Would have fallen if Raechelle hadn't caught my arm.
+
+"Breathe," she commanded. "Slow breaths. Let it settle. Don't try to control it yet, just let it flow."
+
+I did as she said. Breathed slowly, deeply, while power coursed through me like electricity through wires. The pendant was hot against my chest, almost burning, but not painful. Grounding. Like it was teaching my body how to handle what I'd become.
+
+Gradually—so gradually I almost didn't notice—the overwhelming sensation began to ebb. Not disappearing, but becoming manageable. Becoming part of me instead of something foreign and frightening.
+
+When I finally opened my eyes—when had I closed them?—Raechelle was staring at me with an expression I couldn't read. Awe, maybe. Or fear. Or something else entirely.
+
+"Your eyes," she said softly. "They're glowing."
+
+I turned to the mirror on Mom's closet door. She was right. My eyes were glowing with a faint red light, the same color as the bloodstone. Even as I watched, the glow faded, my normal brown eyes returning. But I'd seen it. Proof that I was different now. Changed.
+
+Not quite human anymore.
+
+"How do you feel?" Raechelle asked.
+
+"I don't know." Honest answer. The best I could give. "Everything and nothing. Like I'm more myself but also less. Like I'm standing at a crossroads and I can't see either path."
+
+She nodded like that made sense. "The pendant will help. It's not a solution, but it's a tool. Like training wheels while you learn to balance."
+
+I touched it through my shirt. Still warm. Still pulsing. Still mine.
+
+"Mom wanted me to go to Nocturne," I said. Statement, not question.
+
+"Yes."
+
+"And you're supposed to take me there."
+
+"Yes."
+
+"What if I don't want to go?" The question came out smaller than I intended. Vulnerable.
+
+Raechelle was quiet for a long moment. When she spoke, her voice was gentle. "Then I'll stay here with you and protect you as long as I can. But Riven, you need to understand: staying here is suicide. Every supernatural being within a hundred miles can sense your awakening. They'll come. Some out of curiosity, some out of fear, some because the Council ordered them to verify what you are. We might hold them off for a while, but eventually..."
+
+"Eventually they'll kill me."
+
+"Or worse." She met my eyes. "There are fates worse than death in the supernatural world. Trust me on that."
+
+I believed her. How could I not? She'd spent thirteen years of her life protecting me. Had walked into a burning house without hesitation. Had held me while I broke apart and carefully pieced me back together.
+
+"When do we leave?" I asked.
+
+Something flickered across her face. Relief? Respect? "Dawn. We should leave at dawn, before the supernatural community fully mobilizes. I need to pack, gather some things from my place. You should do the same. Bring what you can't bear to leave behind, but travel light. We'll be moving fast."
+
+I looked around Mom's room. At the closet full of her clothes, the perfume bottles on her dresser, the book on her nightstand with a bookmark three-quarters through that she'd never get to finish. At the life she'd lived and the love she'd given me, all of it contained in these small, ordinary objects.
+
+I couldn't take any of it. Couldn't carry her with me except in memory and in the journal now tucked under my arm.
+
+"I'll be ready," I said. My voice was steady. Stronger than I felt. "But Raechelle? After we get there, after we're safe... I want answers. Real answers. About what I am, what I can do, what the Council wants from me. All of it."
+
+"You'll have them." She moved toward the door, then paused. Looked back at me with an expression that was carefully neutral but had something vulnerable underneath. "For what it's worth, Riven? Your mother was right about you. You're not him. You're not the Blood Archon. You're something better."
+
+She left before I could respond, her footsteps fading down the hallway.
+
+I stood alone in Mom's room, pendant warm against my chest, journal clutched in my hands, and tried to process everything that had happened in the last six hours.
+
+My parents were dead. I was something called a Blood Archon reborn. I had power I didn't understand and enemies I'd never met who wanted me dead or controlled. And I was about to leave the only home I'd ever known to go to a city I'd never heard of with a woman who'd been watching me for over half my life.
+
+It was insane. Impossible. The kind of thing that happened in movies, not to ordinary computer science students who just wanted to graduate and get a job and live a normal life.
+
+But as I looked at my reflection in the mirror—at the stranger wearing my face, with eyes that had glowed red just moments ago—I had to accept the truth.
+
+Normal wasn't an option anymore. It never had been. I'd just been lucky enough to not know it until now.
+
+I touched the pendant one more time, feeling it pulse against my palm.
+
+*I've got you,* it seemed to whisper. *We've got this.*
+
+I could only hope that was true.
 
 # **Chapter 4**
 
