@@ -1055,7 +1055,7 @@ I glanced at Raechelle. She was looking away, jaw tight, like she could feel my 
 
 "Since I was ten," I said. Not quite a question.
 
-"Since you were ten." She confirmed. "Your mother hired me after an incident—you wouldn't remember it, we made sure of that—where someone detected your bloodline signature. I've been living on your property since then. Watching. Protecting. Making sure no one got close enough to realize what you were."
+"Since you were ten," she confirmed. "Your mother hired me after an incident—you wouldn't remember it, we made sure of that—where someone detected your bloodline signature. I've been living on your property since then. Watching. Protecting. Making sure no one got close enough to realize what you were."
 
 "That's..." I didn't know what that was. Disturbing? Comforting? Both? "That's why you were there tonight. At the house. You weren't just passing by."
 
@@ -1088,7 +1088,7 @@ The finality of it hit me like a physical blow. This was all I'd ever get. These
 
 She didn't argue. Couldn't, really. My parents had known they might die protecting me, and they'd done it anyway. Had chosen me over their own survival.
 
-I closed the journal, held it against my chest. The leather was warm from my hands, worn smooth from Mom's. 
+I closed the journal, held it against my chest. The leather was warm from my hands, worn smooth from Mom's handling over the years. 
 
 "There's something else," Raechelle said quietly. "In the compartment. Did you see it?"
 
